@@ -1,15 +1,20 @@
 # Lesson 11: You Are Not the Doer
 
-> **Ashtavakra Gita 1.8**
-> *Ashtavakra:* "Since you have been bitten by the black snake, the opinion about yourself
-> that 'I am the doer', drink the antidote of faith in the fact that 'I am not
-> the doer', and be happy."
+*On Ashtavakra Gita 1.8*
 
 In the last lessons, you learned to watch. You are the witness. You watch the
-body, the thoughts, the feelings. Today Ashtavakra says something that sounds
+body, the thoughts, the feelings. Today the teacher says something that sounds
 strange at first. Stay with me, and go slow.
 
 He says you are not the doer. You are not the one who does things.
+
+Here are his words to the king:
+
+> *Ashtavakra:* "Since you have been bitten by the black snake, the opinion
+> about yourself that 'I am the doer', drink the antidote of faith in the fact
+> that 'I am not the doer', and be happy."
+>
+> — Ashtavakra Gita 1.8
 
 At first this sounds wrong. "Of course I am the doer. I walk. I work. I speak.
 I did all of that." But let us look, the way we have looked at everything
