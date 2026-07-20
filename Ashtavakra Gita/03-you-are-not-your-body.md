@@ -9,19 +9,11 @@ Most people answer the same way. They point to the body and say, "This is
 me." They think, "I am this body. When the body is young, I am young. When
 the body is sick, I am sick. When the body dies, I am gone."
 
-This is the first wrong idea. The idea that you are the body. Here is what
-Ashtavakra says about it:
+This is the first wrong idea. The idea that you are the body.
 
-> *Ashtavakra:* "You do not consist of the elements — earth, water, fire, air
-> or even ether. To be liberated, know yourself as consisting of
-> consciousness, the witness of these."
->
-> — Ashtavakra Gita 1.3
-
-Your body is made of simple stuff of the
-world — earth, water, fire, air. Ashtavakra says: that stuff is not you. You
-are the awareness that watches the body. To be free, know yourself as that —
-the one who sees, not the thing seen.
+Ashtavakra says it in a simple way. You are not made of earth, water, fire, or
+air. That is just stuff. You are the one who watches the body, not the body
+itself.
 
 Look closely with me. When you were a small child, you had a small body. Now
 that body is gone. It changed. It grew. It became a new size and shape. The

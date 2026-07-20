@@ -1,27 +1,19 @@
 # Lesson 11: You Are Not the Doer
 
 In the last lessons, you learned to watch. You are the witness. You watch the
-body, the thoughts, the feelings. Today the teacher says something that sounds
+body, the thoughts, the feelings. Today Ashtavakra says something that sounds
 strange at first. Stay with me, and go slow.
 
 He says you are not the doer. You are not the one who does things.
 
-Here are his words to the king:
+He puts it in a strong way. He says the belief "I am the doer" is like poison
+from a snake bite. It has gotten into you, and it makes you suffer. The cure
+is to take the opposite as true: "I am not the doer." Take that in, he says,
+and be happy.
 
-> *Ashtavakra:* "Since you have been bitten by the black snake, the opinion
-> about yourself that 'I am the doer', drink the antidote of faith in the fact
-> that 'I am not the doer', and be happy."
->
-> — Ashtavakra Gita 1.8
-
-Hear what he means. The belief "I am the doer" is like poison from a snake
-bite. It has gotten into you, and it makes you suffer. The
-cure is to take the opposite as true: "I am not the doer." Take that in, he
-says, and be happy. That is the whole verse.
-
-Now let us understand it slowly. At first, "I am not the doer" sounds wrong.
-"Of course I am the doer. I walk. I work. I speak. I did all of that." But let
-us look, the way we have looked at everything else.
+At first this sounds wrong. "Of course I am the doer. I walk. I work. I speak.
+I did all of that." But let us look, the way we have looked at everything
+else.
 
 Start with the easy ones. Your heart is beating right now. Are you doing that?
 No. It beats on its own. You breathe all day and all night. Most of the time,
@@ -37,16 +29,15 @@ walking happens, and you see it. Look for the one who is "doing" the walking,
 apart from the walking itself, and you will not find him. There is walking,
 and there is you, watching.
 
-This is what the verse means. There is a feeling that comes and says, "I am
-the one doing this." Ashtavakra calls that feeling a snake bite. It is the one
-idea that brings all the weight. "I am the doer. It all rests on me. I must
-push, I must control." Drop that one idea, he says. The doing still happens.
-You simply stop carrying it.
+There is a feeling that comes and says, "I am the one doing this." That
+feeling is what brings all the weight. "It all rests on me. I must push, I
+must control." Let that feeling go. The doing still happens. You simply stop
+carrying it.
 
 So here is the idea for today:
 
-**You are not the doer. The body and the mind act on their own, as part of
-nature. You are the one who watches the doing. You do not have to carry it.**
+**You are not the doer. The body and the mind act on their own. You are the
+one who watches the doing. You do not have to carry it.**
 
 Let me be clear, so this is not misread. This does not mean nothing gets done.
 Things get done all day. It means you are not the tense one straining to do

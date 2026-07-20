@@ -3,19 +3,6 @@
 In the last lesson, we said that the old habit fades as you keep seeing. So a
 fair question comes next. What is this "seeing"? And how do I do it?
 
-Ashtavakra says it simply:
-
-> *Ashtavakra:* "If only you will remain resting in consciousness, seeing
-> yourself as distinct from the body, then even now you will become happy,
-> peaceful and free from bonds."
->
-> — Ashtavakra Gita 1.4
-
-He makes it very simple. Just rest as awareness. See yourself
-as apart from the body — you are the one who watches it, not the body itself.
-Do that, and even now, this very moment, you become happy and at peace. It is
-not far away. It is as near as this one small turn of seeing.
-
 Let us make it very simple.
 
 Seeing is not a hard thing. It is not a long practice. You do not need to sit
@@ -47,6 +34,6 @@ day, is enough. Slowly, this quiet noticing wears the old habit away.
 
 That is enough for today.
 
-In the next lesson, we will meet one of Ashtavakra's most surprising lines. He
+In the next lesson, we will meet one of Ashtavakra's most surprising ideas. He
 says you are not the doer. Not the one who does things at all. It sounds
 strange, but it is one of the most freeing things he says.

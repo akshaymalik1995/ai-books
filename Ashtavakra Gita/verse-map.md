@@ -1,13 +1,14 @@
 # Verse Map (working backbone)
 
-This file keeps our lessons tied to the text of the Ashtavakra Gita. Rule:
-every lesson names the verse(s) it stands on. If a lesson cannot name a verse,
-we have drifted, and we cut or rework it.
+This file is our **guide**, not something the reader sees. It keeps each
+lesson tied to the text of the Ashtavakra Gita so the teaching stays true and
+does not drift. The lessons themselves are plain, one-idea beginner lessons;
+they do not quote the verses. Where a verse fits, a lesson mentions it in plain
+words. If a lesson's idea cannot be traced to a verse, that is our signal we
+have drifted, and we cut or rework it.
 
 > Verse wording in the table below is a **gist** for quick scanning. The exact
-> quoted text (John Richards translation) is now available in the folder PDF
-> and recorded in `sources.md`; lessons quote it verbatim as an epigraph.
-> Lessons 1–8 are now tagged with their verses.
+> John Richards text is in the folder PDF and credited in `sources.md`.
 
 ---
 
@@ -30,24 +31,27 @@ we have drifted, and we cut or rework it.
 
 ---
 
-## Current lessons (all verse-tagged)
+## Current lessons (the verse that guides each)
 
-- L1 You want to be free → **1.1**
+A ✓ marks a lesson that mentions its verse in plain words; the rest are simply
+guided by it, with no mention.
+
+- L1 You want to be free → **1.1** ✓ (Janaka's question)
 - L2 What stands in the way → **1.7**
-- L3 You are not your body → **1.3**
-- L4 You are not your mind → **1.5**
-- L5 You are the witness → **1.12**
-- L6 Fear and worry are not yours → **1.6**
+- L3 You are not your body → **1.3** ✓ (not earth, water, fire, air)
+- L4 You are not your mind → guided by the witness idea (1.3, 1.5); no clean verse — teach plainly
+- L5 You are the witness → **1.12** ✓ (he names the witness)
+- L6 Fear and worry are not yours → **1.6** ✓ (pleasure and pain are of the mind)
 - L7 Life keeps changing, you do not → **1.6**
-- L8 You are already free → **1.15**
-- L9 Why you do not feel free yet → **1.14**
+- L8 You are already free → **1.15** ✓ (already unbound)
+- L9 Why you do not feel free yet → **1.14** ✓ (long trapped in the body)
 - L10 How to see → **1.4**
-- L11 You are not the doer → **1.8**
-- L12 An example — when you put things off → **1.6** (applies 1.6 / 1.8)
+- L11 You are not the doer → **1.8** ✓ (the snakebite "I am the doer")
+- L12 An example — when you put things off → **1.6 / 1.8** ✓
 
 The old procrastination arc (five free-standing lessons) has been compressed
-into **one example lesson, L12**, tied to 1.6 / 1.8, after a proper spine
-lesson on "you are not the doer" (L11, 1.8).
+into **one example lesson, L12**, after a lesson on "you are not the doer"
+(L11).
 
 ## Chapter 1 verses still to cover
 

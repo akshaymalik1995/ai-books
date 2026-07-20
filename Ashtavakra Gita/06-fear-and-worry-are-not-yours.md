@@ -6,18 +6,8 @@ calm one who watches, and does not change.
 Now let us ask a real question. What about your fear? What about your worry?
 They feel so strong. They feel like *you*. So where do they fit?
 
-Ashtavakra gives a clear answer:
-
-> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are
-> purely of the mind and are no concern of yours. You are neither the doer nor
-> the reaper of the consequences, so you are always free."
->
-> — Ashtavakra Gita 1.6
-
-His answer is simple. Pleasure and pain, and even right and
-wrong, all happen in the mind. They are not you, and they are not your real
-concern. Your fear is a pain in the mind. Your worry is a pain in the mind.
-They rise there. You are the witness who sees them, and you stay free.
+Ashtavakra gives a simple answer. He says pleasure and pain, and even right
+and wrong, are all just things in the mind. They are not you.
 
 Watch what happens when fear comes. A fear rises. Your mind gets tight. Your
 thoughts run fast. But stop and look. Who sees the fear?

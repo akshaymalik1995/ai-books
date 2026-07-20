@@ -12,24 +12,15 @@ you? You will fail." Another voice pushes you. "Come on, force yourself, five
 more minutes." And under both, there is the part that just wants to escape
 into the phone.
 
-Now bring in the verse we have been sitting with:
+Remember what Ashtavakra taught. Right and wrong, pleasure and pain, are just
+things in the mind. And you are not the doer. So look. The criticism — "you
+are bad, you will fail" — is the mind judging. It is not you. The push is the
+mind straining. That is not you either. You are the one who watches them both.
 
-> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are
-> purely of the mind and are no concern of yours. You are neither the doer nor
-> the reaper of the consequences, so you are always free."
->
-> — Ashtavakra Gita 1.6
-
-Bring it right into this moment. The criticism —
-"you are bad, you will fail" — is the mind judging right and wrong. The push,
-and the tight painful feeling of it, is the mind straining. The verse says all
-of that is of the mind, and none of it is you. And it says you are not the
-doer. So the criticism and the push are not "you" fixing yourself. They are
-just the mind's noise, and you are the one who watches it.
-
-And notice something honest. The noise does not even work. You have criticized
-and pushed yourself for years, and here you still are, scrolling. The noise
-was never what made you act.
+So the criticism and the push are not "you" fixing yourself. They are just the
+mind's noise. And notice: they do not even work. You have criticized and
+pushed yourself for years, and here you still are, scrolling. The noise was
+never what made you act.
 
 So what does? Not the war. Clear seeing. When the criticism and the push go
 quiet, and you simply see — see that the scrolling is empty right now, see

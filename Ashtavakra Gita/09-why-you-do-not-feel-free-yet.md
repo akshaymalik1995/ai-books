@@ -4,18 +4,9 @@ In the last lesson, we said a big thing. You are already free. But you may
 have felt a doubt right after. You may have thought, "If I am already free,
 then why do I still not feel free?"
 
-This is a good and honest question. Ashtavakra points to the reason:
-
-> *Ashtavakra:* "You have long been trapped in the snare of identification with
-> the body. Sever it with the knife of knowledge that 'I am awareness', and be
-> happy, my son."
->
-> — Ashtavakra Gita 1.14
-
-Look at the reason he gives. You have been caught for a very long
-time in one habit — the habit of thinking "I am the body." That long habit is
-why you do not feel free. And the way out is knowledge: to see, again and
-again, "I am awareness. I am the witness." That seeing cuts the old habit.
+This is a good and honest question. Ashtavakra gives the reason. For a very
+long time, you have been caught in one habit — the habit of thinking, "I am
+the body."
 
 Look at how old the habit is. Every day, from when you were small, you
 thought, "I am the body. I am the mind. I am bound." You thought it again and
