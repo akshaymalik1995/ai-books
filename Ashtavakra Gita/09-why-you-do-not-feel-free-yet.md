@@ -1,5 +1,10 @@
 # Lesson 9: Why You Do Not Feel Free Yet
 
+> **Ashtavakra Gita 1.14**
+> "You have long been trapped in the snare of identification with the body.
+> Sever it with the knife of knowledge that 'I am awareness', and be happy, my
+> son."
+
 In the last lesson, we said a big thing. You are already free. But you may
 have felt a doubt right after. You may have thought, "If I am already free,
 then why do I still not feel free?"

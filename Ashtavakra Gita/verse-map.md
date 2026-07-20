@@ -30,34 +30,34 @@ we have drifted, and we cut or rework it.
 
 ---
 
-## Where our current lessons stand
+## Current lessons (all verse-tagged)
 
-**Grounded (keep, just add the verse tag):**
+- L1 You want to be free → **1.1**
+- L2 What stands in the way → **1.7**
+- L3 You are not your body → **1.3**
+- L4 You are not your mind → **1.5**
+- L5 You are the witness → **1.12**
+- L6 Fear and worry are not yours → **1.6**
+- L7 Life keeps changing, you do not → **1.6**
+- L8 You are already free → **1.15**
+- L9 Why you do not feel free yet → **1.14**
+- L10 How to see → **1.4**
+- L11 You are not the doer → **1.8**
+- L12 An example — when you put things off → **1.6** (applies 1.6 / 1.8)
 
-- L1 You want to be free → **1.1** (A)
-- L2 What stands in the way → **1.7**, 1.11 (F, I)
-- L3 You are not your body → **1.3, 1.14** (C)
-- L4 You are not your mind → **1.3** (C, extended)
-- L5 You are the witness → **1.3, 1.7** (C, F)
-- L6 Fear and worry are not yours → **1.6** (E)
-- L7 Life keeps changing, you do not → **1.6, 1.12** (E, J)
-- L8 You are already free → **1.7** (F)
+The old procrastination arc (five free-standing lessons) has been compressed
+into **one example lesson, L12**, tied to 1.6 / 1.8, after a proper spine
+lesson on "you are not the doer" (L11, 1.8).
 
-**Drifting (our elaboration, thin verse-tether):**
+## Chapter 1 verses still to cover
 
-- L9 Why you do not feel free yet — "old habit" is our idea; loosely 1.14. Keep only if tied to a verse.
-- L10 How to see — a "gentle practice"; Ashtavakra teaches recognition, not method. Drift.
-- L11 The fight inside (procrastination) — our construction.
-- L12 The one who blames is not you — application of E/F.
-- L13 The one who pushes is not you — application of E/F.
-- L14 But will I not stay lazy? — our psychological argument.
-- L15 Where doing really comes from — our argument; real tether is **1.6, 1.8** (not the doer).
-
-**Finding:** the procrastination arc (L11–L15) is one honest *application* of two
-verses — **1.6** (right/wrong, pleasure/pain are of the mind; you are not the
-doer) and **1.8** (drop "I am the doer"). It grew into five free-standing
-lessons that outran their root. Under the new plan it should live *as an
-example under 1.6 / 1.8*, much shortened, not as its own spine.
+- **1.2** — turn from craving; value the simple virtues.
+- **1.9** — freedom is a knowing that burns ignorance.
+- **1.10** — the world appears in you, like a snake imagined in a rope.
+- **1.11** — as you think, so you become (free or bound).
+- **1.13, 1.16, 1.17** — the changeless, all-pervading, actionless Self.
+- **1.18** — the seen is false, the formless is real.
+- **1.19, 1.20** — the Self within and without, like space in and around a jar.
 
 ---
 

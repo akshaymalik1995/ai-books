@@ -1,5 +1,10 @@
 # Lesson 10: How to See
 
+> **Ashtavakra Gita 1.4**
+> "If only you will remain resting in consciousness, seeing yourself as
+> distinct from the body, then even now you will become happy, peaceful and
+> free from bonds."
+
 In the last lesson, we said that the old habit fades as you keep seeing. So a
 fair question comes next. What is this "seeing"? And how do I do it?
 
@@ -34,6 +39,6 @@ day, is enough. Slowly, this quiet noticing wears the old habit away.
 
 That is enough for today.
 
-In the next lesson, we will use this watching on something hard. Something
-that troubles almost everyone. We will look at what happens inside you when
-you put off something important.
+In the next lesson, we will meet one of Ashtavakra's most surprising lines. He
+says you are not the doer. Not the one who does things at all. It sounds
+strange, but it is one of the most freeing things he says.
