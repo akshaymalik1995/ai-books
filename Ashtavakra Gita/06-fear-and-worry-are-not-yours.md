@@ -1,15 +1,25 @@
 # Lesson 6: Fear and Worry Are Not Yours
 
-> **Ashtavakra Gita 1.6**
-> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are purely of the mind
-> and are no concern of yours. You are neither the doer nor the reaper of the
-> consequences, so you are always free."
+*On Ashtavakra Gita 1.6*
 
 In the last lesson, we found the big thing. You are the witness. You are the
 calm one who watches, and does not change.
 
 Now let us ask a real question. What about your fear? What about your worry?
 They feel so strong. They feel like *you*. So where do they fit?
+
+Ashtavakra gives a clear answer:
+
+> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are
+> purely of the mind and are no concern of yours. You are neither the doer nor
+> the reaper of the consequences, so you are always free."
+>
+> — Ashtavakra Gita 1.6
+
+Let us put that in plain words. He says pleasure and pain, and even right and
+wrong, all happen in the mind. They are not you, and they are not your real
+concern. Your fear is a pain in the mind. Your worry is a pain in the mind.
+They rise there. You are the witness who sees them, and you stay free.
 
 Watch what happens when fear comes. A fear rises. Your mind gets tight. Your
 thoughts run fast. But stop and look. Who sees the fear?

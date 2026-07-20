@@ -1,20 +1,27 @@
 # Lesson 9: Why You Do Not Feel Free Yet
 
-> **Ashtavakra Gita 1.14**
-> *Ashtavakra:* "You have long been trapped in the snare of identification with the body.
-> Sever it with the knife of knowledge that 'I am awareness', and be happy, my
-> son."
+*On Ashtavakra Gita 1.14*
 
 In the last lesson, we said a big thing. You are already free. But you may
 have felt a doubt right after. You may have thought, "If I am already free,
 then why do I still not feel free?"
 
-This is a good and honest question. Let us look at it with care.
+This is a good and honest question. Ashtavakra points to the reason:
 
-You have thought one thing your whole life. Every day, from when you were
-small, you thought, "I am the body. I am the mind. I am bound." You thought
-it again and again for years. It became a habit. A very old, very strong
-habit of the mind.
+> *Ashtavakra:* "You have long been trapped in the snare of identification with
+> the body. Sever it with the knife of knowledge that 'I am awareness', and be
+> happy, my son."
+>
+> — Ashtavakra Gita 1.14
+
+Let us put that in plain words. He says you have been caught for a very long
+time in one habit — the habit of thinking "I am the body." That long habit is
+why you do not feel free. And the way out is knowledge: to see, again and
+again, "I am awareness. I am the witness." That seeing cuts the old habit.
+
+Look at how old the habit is. Every day, from when you were small, you
+thought, "I am the body. I am the mind. I am bound." You thought it again and
+again for years. It became a habit. A very old, very strong habit of the mind.
 
 Now, in a few lessons, you have seen something new. You have seen that you
 are the free witness. That seeing is true. But it is new. And the old habit

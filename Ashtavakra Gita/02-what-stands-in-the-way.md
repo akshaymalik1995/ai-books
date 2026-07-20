@@ -1,9 +1,6 @@
 # Lesson 2: What Stands in the Way
 
-> **Ashtavakra Gita 1.7**
-> *Ashtavakra:* "You are the one witness of everything, and are always completely free. The
-> cause of your bondage is that you see the witness as something other than
-> this."
+*On Ashtavakra Gita 1.7*
 
 In the last lesson, we said one thing. You want to be free.
 
@@ -17,8 +14,18 @@ that person changes."
 So they wait. They fix one thing outside. Then another. Then another. But
 the not-free feeling stays. It comes back again and again.
 
-Ashtavakra says something different. He says the thing that stops you is not
-outside you. It is inside you. It is a wrong idea in your own mind.
+Ashtavakra points somewhere else. Here is what he says:
+
+> *Ashtavakra:* "You are the one witness of everything, and are always
+> completely free. The cause of your bondage is that you see the witness as
+> something other than this."
+>
+> — Ashtavakra Gita 1.7
+
+Let us put that in plain words. He says you are already free. And the one
+thing that ties you down is a wrong idea about yourself. You take yourself to
+be something you are not. The chain is not out in the world. The chain is a
+wrong thought in your own mind.
 
 You feel bound because you *think* you are bound. That thought is the real
 chain. Not the world. Not your money. Not other people. Just a wrong idea

@@ -1,8 +1,6 @@
 # Lesson 1: You Want to Be Free
 
-> **Ashtavakra Gita 1.1**
-> *Janaka:* "How is knowledge to be acquired? How is liberation to be attained? And how
-> is dispassion to be reached? Tell me this, sir."
+*On Ashtavakra Gita 1.1*
 
 Let us begin.
 
@@ -10,7 +8,16 @@ Long ago, there was a king named Janaka. He went to a teacher named
 Ashtavakra. The king had many things. He had a kingdom. He had money. He had
 power. But inside, he was not at peace.
 
-So he asked the teacher one question. He asked, "How do I become free?"
+So he asked the teacher one question. These were his words:
+
+> *Janaka:* "How is knowledge to be acquired? How is liberation to be
+> attained? And how is dispassion to be reached? Tell me this, sir."
+>
+> — Ashtavakra Gita 1.1
+
+Let us put that in plain words. Janaka is asking, "How do I truly know? How do
+I become free? How do I stop being pulled this way and that by wanting?" Three
+questions. But under them is really one wish. He wants to be free.
 
 That is where this book starts. One man asking how to be free.
 

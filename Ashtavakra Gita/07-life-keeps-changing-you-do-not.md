@@ -1,13 +1,23 @@
 # Lesson 7: Life Keeps Changing, You Do Not
 
-> **Ashtavakra Gita 1.6**
-> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are purely of the mind
-> and are no concern of yours. You are neither the doer nor the reaper of the
-> consequences, so you are always free."
+*On Ashtavakra Gita 1.6*
 
 In the last lesson, we saw that fear and worry are not you. They come into
 the mind, and they pass. Today we take that same idea and make it bigger. We
 take it to your whole life.
+
+We stay with the same verse as last time, because it has more to give us:
+
+> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are
+> purely of the mind and are no concern of yours. You are neither the doer nor
+> the reaper of the consequences, so you are always free."
+>
+> — Ashtavakra Gita 1.6
+
+Last time we looked at the word "pain." Now look at both words together:
+pleasure and pain. Good days and bad days. In plain words, he is saying that
+the ups and the downs both rise and pass in the mind, while you, the witness,
+stay free. Neither the good day nor the bad day is you.
 
 Look at your life. It is always changing. A good day comes. Then a hard day
 comes. You get something you wanted. Then you lose something you liked.

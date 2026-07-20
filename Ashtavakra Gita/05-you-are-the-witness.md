@@ -1,9 +1,6 @@
 # Lesson 5: You Are the Witness
 
-> **Ashtavakra Gita 1.12**
-> *Ashtavakra:* "Your real nature is as the one perfect, free, and actionless consciousness,
-> the all-pervading witness — unattached to anything, desireless and at peace.
-> It is from illusion that you seem to be involved in samsara."
+*On Ashtavakra Gita 1.12*
 
 Let us bring the last two lessons together.
 
@@ -11,10 +8,23 @@ You are not your body. You watch your body.
 You are not your mind. You watch your thoughts and feelings.
 
 So in both cases, there was someone watching. Today we look at that watcher.
+Ashtavakra tells us plainly what it is:
 
-Ashtavakra has a name for this watcher. He calls it the *witness*. A witness
-is someone who sees a thing happen. The witness does not do the thing. The
-witness only watches it.
+> *Ashtavakra:* "Your real nature is as the one perfect, free, and actionless
+> consciousness, the all-pervading witness — unattached to anything,
+> desireless and at peace. It is from illusion that you seem to be involved in
+> samsara."
+>
+> — Ashtavakra Gita 1.12
+
+Let us put that in plain words. He says what you really are is awareness — the
+witness. It watches everything but does nothing. It is not tied to anything,
+it wants nothing, and it is at peace. And it only *seems* like you are caught
+up in the trouble of the world. That seeming is a kind of mistake. Really, you
+are the calm witness.
+
+A witness is someone who sees a thing happen. The witness does not do the
+thing. The witness only watches it.
 
 This is what you are. You are the one who watches. You watch the body move.
 You watch thoughts come and go. You watch feelings rise and fall. Through all

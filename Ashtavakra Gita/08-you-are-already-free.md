@@ -1,9 +1,6 @@
 # Lesson 8: You Are Already Free
 
-> **Ashtavakra Gita 1.15**
-> *Ashtavakra:* "You are really unbound and actionless, self-illuminating and spotless
-> already. The cause of your bondage is that you are still resorting to
-> stilling the mind."
+*On Ashtavakra Gita 1.15*
 
 Let us look back for a moment. In Lesson 1, you came here with one wish. You
 wanted to be free. Now we are ready for the biggest turn in the whole book.
@@ -20,11 +17,18 @@ the witness stayed free. It was never once bound. It was free the whole
 time.
 
 So here is the surprise. You were looking for freedom. But the one who was
-looking was already free. You did not need to become free. You only needed to
-see that you already are.
+looking was already free. Hear how Ashtavakra says it:
 
-This is what Ashtavakra told the king. He said, "You are already free. The
-thing you are looking for, you already are."
+> *Ashtavakra:* "You are really unbound and actionless, self-illuminating and
+> spotless already. The cause of your bondage is that you are still resorting
+> to stilling the mind."
+>
+> — Ashtavakra Gita 1.15
+
+Let us put that in plain words. He says you are free already. Not later. Now.
+Then he says something surprising. The one thing that keeps you feeling bound
+is that you are still working at it — still trying to fix your mind, as if you
+were not free yet. The trying itself keeps up the idea that you are not free.
 
 Go slow here. You thought freedom was far away. You thought you had to reach
 it one day. But the witness, the real you, was free from the start. Freedom

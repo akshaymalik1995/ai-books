@@ -1,12 +1,22 @@
 # Lesson 10: How to See
 
-> **Ashtavakra Gita 1.4**
-> *Ashtavakra:* "If only you will remain resting in consciousness, seeing yourself as
-> distinct from the body, then even now you will become happy, peaceful and
-> free from bonds."
+*On Ashtavakra Gita 1.4*
 
 In the last lesson, we said that the old habit fades as you keep seeing. So a
 fair question comes next. What is this "seeing"? And how do I do it?
+
+Ashtavakra says it simply:
+
+> *Ashtavakra:* "If only you will remain resting in consciousness, seeing
+> yourself as distinct from the body, then even now you will become happy,
+> peaceful and free from bonds."
+>
+> — Ashtavakra Gita 1.4
+
+Let us put that in plain words. He says: just rest as awareness. See yourself
+as apart from the body — you are the one who watches it, not the body itself.
+Do that, and even now, this very moment, you become happy and at peace. It is
+not far away. It is as near as this one small turn of seeing.
 
 Let us make it very simple.
 
