@@ -34,6 +34,6 @@ day, is enough. Slowly, this quiet noticing wears the old habit away.
 
 That is enough for today.
 
-In the next lesson, we will meet the fear that comes the moment you try this.
-When you stop controlling and only watch, something in you gets scared. We
-will look at that fear.
+In the next lesson, we will clear up a mistake that is easy to make here. When
+I say "just watch," it is easy to think this means you should let the mind do
+anything it wants. It does not. We will see why.
