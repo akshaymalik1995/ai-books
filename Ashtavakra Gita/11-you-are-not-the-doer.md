@@ -16,9 +16,14 @@ Here are his words to the king:
 >
 > — Ashtavakra Gita 1.8
 
-At first this sounds wrong. "Of course I am the doer. I walk. I work. I speak.
-I did all of that." But let us look, the way we have looked at everything
-else.
+Let us put that in plain words. He says the belief "I am the doer" is like
+poison from a snake bite. It has gotten into you, and it makes you suffer. The
+cure is to take the opposite as true: "I am not the doer." Take that in, he
+says, and be happy. That is the whole verse.
+
+Now let us understand it slowly. At first, "I am not the doer" sounds wrong.
+"Of course I am the doer. I walk. I work. I speak. I did all of that." But let
+us look, the way we have looked at everything else.
 
 Start with the easy ones. Your heart is beating right now. Are you doing that?
 No. It beats on its own. You breathe all day and all night. Most of the time,
