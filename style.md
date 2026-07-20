@@ -25,6 +25,13 @@ phrase, no fancy technique. Do not try to sound beautiful or poetic. Just
 state the idea in the simplest, most ordinary way. A plain sentence that is
 clear is always better than a pretty sentence that makes the reader think.
 
+**Each lesson builds on the last.**
+The lessons are in order. Every lesson stands on the one before it. We use
+what the reader already learned, then add one new step. So the reader should
+read them in order, from the first to the last. Later lessons may point back
+to earlier ones. Slowly, step by step, the small ideas join into one whole
+understanding.
+
 ## Quick Checklist
 
 Before finishing a lesson, check:
@@ -34,6 +41,7 @@ Before finishing a lesson, check:
 - [ ] Does it feel like I am **speaking to you**, not to a room?
 - [ ] Are the sentences **short** and **plain**?
 - [ ] Did I avoid metaphors and clever wording?
+- [ ] Does this lesson **build on the one before it**?
 - [ ] Would a reader feel calm and clear at the end?
 
 ## Tone
