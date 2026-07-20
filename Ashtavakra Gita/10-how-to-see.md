@@ -34,6 +34,6 @@ day, is enough. Slowly, this quiet noticing wears the old habit away.
 
 That is enough for today.
 
-In the next lesson, we will clear up a mistake that is easy to make here. When
-I say "just watch," it is easy to think this means you should let the mind do
-anything it wants. It does not. We will see why.
+In the next lesson, we will use this watching on something hard. Something
+that troubles almost everyone. We will look at what happens inside you when
+you put off something important.
