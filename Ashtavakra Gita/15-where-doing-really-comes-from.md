@@ -29,11 +29,12 @@ that wants to escape, that part pushes back. The war itself creates the stuck
 feeling. The task got heavy because of the fight, not because it truly needed
 a fight.
 
-So here is what you can do with the important task. Do not bring the war to
-it. Bring the same clear seeing you bring to a glass of water. Look at the
-task simply, and find the next small step. Not the whole task at once. Just
-the next small thing. Then do that one thing, the way you drink water. Seen,
-and done.
+So what about the important task? Do not bring the war to it. Bring the same
+clear seeing you gave to the glass of water. See the task simply. Not the
+whole of it at once. Just the very next small step. And here is the key point.
+You do not then have to force yourself to do it. When the step is truly seen,
+and the war is quiet, the doing tends to follow on its own. The same way
+drinking followed thirst. Seeing leads to doing. You do not have to push.
 
 So here is the idea for today:
 
@@ -48,6 +49,8 @@ step goes further than a big forced push that falls apart an hour later.
 
 That is enough for today.
 
-In the next lesson, we will look at what is left when the whole fight goes
-quiet. Not just the doing, but you. Who are you, when the war inside finally
-stops?
+But a real question may be growing in you now. If I drop these voices, how
+will I know what is right? What about the voice that keeps me in check? If I
+am playing games and a voice says, "You will fail unless you study," is that
+voice not helping me? That is an important question, and we will take it up in
+the next lesson.
