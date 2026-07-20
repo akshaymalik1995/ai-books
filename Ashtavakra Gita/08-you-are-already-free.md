@@ -25,7 +25,7 @@ looking was already free. Hear how Ashtavakra says it:
 >
 > — Ashtavakra Gita 1.15
 
-Let us put that in plain words. He says you are free already. Not later. Now.
+Sit with what he says. You are free already. Not later. Now.
 Then he says something surprising. The one thing that keeps you feeling bound
 is that you are still working at it — still trying to fix your mind, as if you
 were not free yet. The trying itself keeps up the idea that you are not free.

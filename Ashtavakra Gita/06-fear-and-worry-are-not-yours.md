@@ -16,7 +16,7 @@ Ashtavakra gives a clear answer:
 >
 > — Ashtavakra Gita 1.6
 
-Let us put that in plain words. He says pleasure and pain, and even right and
+His answer is simple. Pleasure and pain, and even right and
 wrong, all happen in the mind. They are not you, and they are not your real
 concern. Your fear is a pain in the mind. Your worry is a pain in the mind.
 They rise there. You are the witness who sees them, and you stay free.

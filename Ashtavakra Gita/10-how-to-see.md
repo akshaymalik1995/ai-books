@@ -13,7 +13,7 @@ Ashtavakra says it simply:
 >
 > — Ashtavakra Gita 1.4
 
-Let us put that in plain words. He says: just rest as awareness. See yourself
+He makes it very simple. Just rest as awareness. See yourself
 as apart from the body — you are the one who watches it, not the body itself.
 Do that, and even now, this very moment, you become happy and at peace. It is
 not far away. It is as near as this one small turn of seeing.

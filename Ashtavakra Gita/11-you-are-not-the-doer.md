@@ -16,8 +16,8 @@ Here are his words to the king:
 >
 > — Ashtavakra Gita 1.8
 
-Let us put that in plain words. He says the belief "I am the doer" is like
-poison from a snake bite. It has gotten into you, and it makes you suffer. The
+Hear what he means. The belief "I am the doer" is like poison from a snake
+bite. It has gotten into you, and it makes you suffer. The
 cure is to take the opposite as true: "I am not the doer." Take that in, he
 says, and be happy. That is the whole verse.
 

@@ -14,7 +14,7 @@ This is a good and honest question. Ashtavakra points to the reason:
 >
 > — Ashtavakra Gita 1.14
 
-Let us put that in plain words. He says you have been caught for a very long
+Look at the reason he gives. You have been caught for a very long
 time in one habit — the habit of thinking "I am the body." That long habit is
 why you do not feel free. And the way out is knowledge: to see, again and
 again, "I am awareness. I am the witness." That seeing cuts the old habit.

@@ -17,7 +17,7 @@ Ashtavakra tells us plainly what it is:
 >
 > — Ashtavakra Gita 1.12
 
-Let us put that in plain words. He says what you really are is awareness — the
+What you really are, he says, is awareness — the
 witness. It watches everything but does nothing. It is not tied to anything,
 it wants nothing, and it is at peace. And it only *seems* like you are caught
 up in the trouble of the world. That seeming is a kind of mistake. Really, you

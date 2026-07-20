@@ -15,7 +15,7 @@ So he asked the teacher one question. These were his words:
 >
 > — Ashtavakra Gita 1.1
 
-Let us put that in plain words. Janaka is asking, "How do I truly know? How do
+Look at what he is asking. "How do I truly know? How do
 I become free? How do I stop being pulled this way and that by wanting?" Three
 questions. But under them is really one wish. He wants to be free.
 

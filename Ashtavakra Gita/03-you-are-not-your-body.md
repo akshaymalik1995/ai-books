@@ -20,7 +20,7 @@ Ashtavakra says about it:
 >
 > — Ashtavakra Gita 1.3
 
-Let us put that in plain words. Your body is made of simple stuff of the
+Your body is made of simple stuff of the
 world — earth, water, fire, air. Ashtavakra says: that stuff is not you. You
 are the awareness that watches the body. To be free, know yourself as that —
 the one who sees, not the thing seen.

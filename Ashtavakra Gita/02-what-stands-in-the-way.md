@@ -22,7 +22,7 @@ Ashtavakra points somewhere else. Here is what he says:
 >
 > — Ashtavakra Gita 1.7
 
-Let us put that in plain words. He says you are already free. And the one
+Hear that carefully. You are already free. And the one
 thing that ties you down is a wrong idea about yourself. You take yourself to
 be something you are not. The chain is not out in the world. The chain is a
 wrong thought in your own mind.

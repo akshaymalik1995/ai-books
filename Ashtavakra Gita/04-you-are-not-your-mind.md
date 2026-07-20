@@ -15,7 +15,7 @@ Let us look at this too. Here is what Ashtavakra says:
 >
 > — Ashtavakra Gita 1.5
 
-Let us put that in plain words. He says you are not any of the labels put on
+So what is he saying? You are not any of the labels put on
 you — not your caste, not your role, not your stage in life. And you are not
 anything that can be seen. You are the formless one who witnesses everything.
 Now think about your thoughts and feelings. You can see them. So they too are

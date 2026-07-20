@@ -22,7 +22,7 @@ Now bring in the verse we have been sitting with:
 >
 > — Ashtavakra Gita 1.6
 
-Let us put that in plain words, right here in this moment. The criticism —
+Bring it right into this moment. The criticism —
 "you are bad, you will fail" — is the mind judging right and wrong. The push,
 and the tight painful feeling of it, is the mind straining. The verse says all
 of that is of the mind, and none of it is you. And it says you are not the

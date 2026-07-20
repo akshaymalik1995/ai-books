@@ -15,9 +15,8 @@ We stay with the same verse as last time, because it has more to give us:
 > — Ashtavakra Gita 1.6
 
 Last time we looked at the word "pain." Now look at both words together:
-pleasure and pain. Good days and bad days. In plain words, he is saying that
-the ups and the downs both rise and pass in the mind, while you, the witness,
-stay free. Neither the good day nor the bad day is you.
+pleasure and pain. Good days and bad days. He is saying that both of them rise
+and pass in the mind, while you, the witness, stay free. Neither the good day nor the bad day is you.
 
 Look at your life. It is always changing. A good day comes. Then a hard day
 comes. You get something you wanted. Then you lose something you liked.
