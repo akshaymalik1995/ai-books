@@ -33,5 +33,6 @@ this work happen." See if the weight gets a little lighter.
 
 That is enough for today.
 
-In the next lesson, we will look at what happens to wanting. So much of our
-trouble comes from wanting things. What does the witness do with that?
+In the next lesson, we will meet the fear that stops most people right here.
+"If I let go of control, will I not become lazy? Will it all not fall apart?"
+That fear is real, and we will look at it with honesty.
