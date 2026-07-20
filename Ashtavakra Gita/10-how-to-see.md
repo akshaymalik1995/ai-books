@@ -34,5 +34,6 @@ day, is enough. Slowly, this quiet noticing wears the old habit away.
 
 That is enough for today.
 
-In the next lesson, we will clear up one thing people often get wrong. They
-think this seeing means they must run away from the world. It does not.
+In the next lesson, we will meet the fear that comes the moment you try this.
+When you stop controlling and only watch, something in you gets scared. We
+will look at that fear.
