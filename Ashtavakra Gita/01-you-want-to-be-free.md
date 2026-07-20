@@ -1,5 +1,9 @@
 # Lesson 1: You Want to Be Free
 
+> **Ashtavakra Gita 1.1**
+> "How is knowledge to be acquired? How is liberation to be attained? And how
+> is dispassion to be reached? Tell me this, sir."
+
 Let us begin.
 
 Long ago, there was a king named Janaka. He went to a teacher named

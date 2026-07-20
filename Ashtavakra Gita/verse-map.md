@@ -4,9 +4,10 @@ This file keeps our lessons tied to the text of the Ashtavakra Gita. Rule:
 every lesson names the verse(s) it stands on. If a lesson cannot name a verse,
 we have drifted, and we cut or rework it.
 
-> Verse wording below is a **gist only**, from memory, to build the map. Exact
-> quoted text is pending a locked public-domain translation (see
-> `sources.md`). Do not treat these as final quotations.
+> Verse wording in the table below is a **gist** for quick scanning. The exact
+> quoted text (John Richards translation) is now available in the folder PDF
+> and recorded in `sources.md`; lessons quote it verbatim as an epigraph.
+> Lessons 1–8 are now tagged with their verses.
 
 ---
 

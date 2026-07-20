@@ -1,5 +1,10 @@
 # Lesson 6: Fear and Worry Are Not Yours
 
+> **Ashtavakra Gita 1.6**
+> "Righteousness and unrighteousness, pleasure and pain are purely of the mind
+> and are no concern of yours. You are neither the doer nor the reaper of the
+> consequences, so you are always free."
+
 In the last lesson, we found the big thing. You are the witness. You are the
 calm one who watches, and does not change.
 

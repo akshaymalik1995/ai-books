@@ -1,5 +1,10 @@
 # Lesson 3: You Are Not Your Body
 
+> **Ashtavakra Gita 1.3**
+> "You do not consist of the elements — earth, water, fire, air or even ether.
+> To be liberated, know yourself as consisting of consciousness, the witness of
+> these."
+
 In the last lesson, we found something. The thing that stops you is a wrong
 idea inside you. Today we start to look at that idea.
 

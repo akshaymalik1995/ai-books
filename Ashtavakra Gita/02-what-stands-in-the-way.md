@@ -1,5 +1,10 @@
 # Lesson 2: What Stands in the Way
 
+> **Ashtavakra Gita 1.7**
+> "You are the one witness of everything, and are always completely free. The
+> cause of your bondage is that you see the witness as something other than
+> this."
+
 In the last lesson, we said one thing. You want to be free.
 
 Now a question comes. If you want to be free, why are you not free already?

@@ -1,5 +1,10 @@
 # Lesson 4: You Are Not Your Mind
 
+> **Ashtavakra Gita 1.5**
+> "You do not belong to the brahmin or any other caste, you are not at any
+> stage, nor are you anything that the eye can see. You are unattached and
+> formless, the witness of everything — so be happy."
+
 In the last lesson, we saw one thing. You are not your body.
 
 Now a new thought may come. You may think, "Fine. I am not the body. Then I

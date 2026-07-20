@@ -1,5 +1,10 @@
 # Lesson 5: You Are the Witness
 
+> **Ashtavakra Gita 1.12**
+> "Your real nature is as the one perfect, free, and actionless consciousness,
+> the all-pervading witness — unattached to anything, desireless and at peace.
+> It is from illusion that you seem to be involved in samsara."
+
 Let us bring the last two lessons together.
 
 You are not your body. You watch your body.
