@@ -1,7 +1,5 @@
 # Lesson 8: You Are Already Free
 
-*On Ashtavakra Gita 1.15*
-
 Let us look back for a moment. In Lesson 1, you came here with one wish. You
 wanted to be free. Now we are ready for the biggest turn in the whole book.
 

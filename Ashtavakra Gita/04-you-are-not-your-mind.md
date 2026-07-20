@@ -1,7 +1,5 @@
 # Lesson 4: You Are Not Your Mind
 
-*On Ashtavakra Gita 1.5*
-
 In the last lesson, we saw one thing. You are not your body.
 
 Now a new thought may come. You may think, "Fine. I am not the body. Then I

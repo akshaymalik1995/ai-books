@@ -1,7 +1,5 @@
 # Lesson 5: You Are the Witness
 
-*On Ashtavakra Gita 1.12*
-
 Let us bring the last two lessons together.
 
 You are not your body. You watch your body.

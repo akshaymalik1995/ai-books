@@ -1,7 +1,5 @@
 # Lesson 1: You Want to Be Free
 
-*On Ashtavakra Gita 1.1*
-
 Let us begin.
 
 Long ago, there was a king named Janaka. He went to a teacher named

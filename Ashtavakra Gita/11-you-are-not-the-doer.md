@@ -1,7 +1,5 @@
 # Lesson 11: You Are Not the Doer
 
-*On Ashtavakra Gita 1.8*
-
 In the last lessons, you learned to watch. You are the witness. You watch the
 body, the thoughts, the feelings. Today the teacher says something that sounds
 strange at first. Stay with me, and go slow.

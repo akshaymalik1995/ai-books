@@ -1,7 +1,5 @@
 # Lesson 6: Fear and Worry Are Not Yours
 
-*On Ashtavakra Gita 1.6*
-
 In the last lesson, we found the big thing. You are the witness. You are the
 calm one who watches, and does not change.
 

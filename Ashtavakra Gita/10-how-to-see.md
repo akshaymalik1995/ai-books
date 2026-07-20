@@ -1,7 +1,5 @@
 # Lesson 10: How to See
 
-*On Ashtavakra Gita 1.4*
-
 In the last lesson, we said that the old habit fades as you keep seeing. So a
 fair question comes next. What is this "seeing"? And how do I do it?
 

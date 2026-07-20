@@ -1,7 +1,5 @@
 # Lesson 2: What Stands in the Way
 
-*On Ashtavakra Gita 1.7*
-
 In the last lesson, we said one thing. You want to be free.
 
 Now a question comes. If you want to be free, why are you not free already?

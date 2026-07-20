@@ -1,7 +1,5 @@
 # Lesson 12: An Example — When You Put Things Off
 
-*On Ashtavakra Gita 1.6*
-
 Let us take everything we have learned into one hard, real case. Something
 that troubles almost everyone. Putting off important work.
 

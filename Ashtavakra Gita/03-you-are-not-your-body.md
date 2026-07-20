@@ -1,7 +1,5 @@
 # Lesson 3: You Are Not Your Body
 
-*On Ashtavakra Gita 1.3*
-
 In the last lesson, we found something. The thing that stops you is a wrong
 idea inside you. Today we start to look at that idea.
 

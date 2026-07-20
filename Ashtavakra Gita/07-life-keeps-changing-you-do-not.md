@@ -1,7 +1,5 @@
 # Lesson 7: Life Keeps Changing, You Do Not
 
-*On Ashtavakra Gita 1.6*
-
 In the last lesson, we saw that fear and worry are not you. They come into
 the mind, and they pass. Today we take that same idea and make it bigger. We
 take it to your whole life.
