@@ -1,7 +1,7 @@
 # Lesson 11: You Are Not the Doer
 
 > **Ashtavakra Gita 1.8**
-> "Since you have been bitten by the black snake, the opinion about yourself
+> *Ashtavakra:* "Since you have been bitten by the black snake, the opinion about yourself
 > that 'I am the doer', drink the antidote of faith in the fact that 'I am not
 > the doer', and be happy."
 

@@ -1,7 +1,7 @@
 # Lesson 2: What Stands in the Way
 
 > **Ashtavakra Gita 1.7**
-> "You are the one witness of everything, and are always completely free. The
+> *Ashtavakra:* "You are the one witness of everything, and are always completely free. The
 > cause of your bondage is that you see the witness as something other than
 > this."
 

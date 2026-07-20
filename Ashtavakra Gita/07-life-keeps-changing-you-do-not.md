@@ -1,7 +1,7 @@
 # Lesson 7: Life Keeps Changing, You Do Not
 
 > **Ashtavakra Gita 1.6**
-> "Righteousness and unrighteousness, pleasure and pain are purely of the mind
+> *Ashtavakra:* "Righteousness and unrighteousness, pleasure and pain are purely of the mind
 > and are no concern of yours. You are neither the doer nor the reaper of the
 > consequences, so you are always free."
 

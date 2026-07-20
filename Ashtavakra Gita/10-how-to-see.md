@@ -1,7 +1,7 @@
 # Lesson 10: How to See
 
 > **Ashtavakra Gita 1.4**
-> "If only you will remain resting in consciousness, seeing yourself as
+> *Ashtavakra:* "If only you will remain resting in consciousness, seeing yourself as
 > distinct from the body, then even now you will become happy, peaceful and
 > free from bonds."
 

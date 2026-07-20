@@ -1,7 +1,7 @@
 # Lesson 8: You Are Already Free
 
 > **Ashtavakra Gita 1.15**
-> "You are really unbound and actionless, self-illuminating and spotless
+> *Ashtavakra:* "You are really unbound and actionless, self-illuminating and spotless
 > already. The cause of your bondage is that you are still resorting to
 > stilling the mind."
 

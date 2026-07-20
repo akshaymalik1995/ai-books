@@ -1,7 +1,7 @@
 # Lesson 9: Why You Do Not Feel Free Yet
 
 > **Ashtavakra Gita 1.14**
-> "You have long been trapped in the snare of identification with the body.
+> *Ashtavakra:* "You have long been trapped in the snare of identification with the body.
 > Sever it with the knife of knowledge that 'I am awareness', and be happy, my
 > son."
 
