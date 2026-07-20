@@ -19,6 +19,12 @@ The author talks *directly to the reader*. Use "you" and "I". Write as if the
 two of you are sitting together, talking quietly. It is not a lecture to a
 crowd. It is a warm, personal talk between two people.
 
+**Plain sentences.**
+Say the thing directly. No literary magic. No metaphors, no clever turns of
+phrase, no fancy technique. Do not try to sound beautiful or poetic. Just
+state the idea in the simplest, most ordinary way. A plain sentence that is
+clear is always better than a pretty sentence that makes the reader think.
+
 ## Quick Checklist
 
 Before finishing a lesson, check:
@@ -26,7 +32,8 @@ Before finishing a lesson, check:
 - [ ] Does this lesson hold only **one** idea?
 - [ ] Is the English **simple** enough for anyone to read?
 - [ ] Does it feel like I am **speaking to you**, not to a room?
-- [ ] Are the sentences **short**?
+- [ ] Are the sentences **short** and **plain**?
+- [ ] Did I avoid metaphors and clever wording?
 - [ ] Would a reader feel calm and clear at the end?
 
 ## Tone
