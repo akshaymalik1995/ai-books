@@ -1,9 +1,9 @@
 # Lesson 14: But Will I Not Stay Lazy?
 
 We have seen two voices inside you. One criticizes you, hard. The other
-pushes you to do better. And we saw that neither of them is you. Now, if you
-have been honest with yourself, a fear has come up. It is a strong fear. Let
-us meet it today, straight on.
+pushes you to do better. And we saw that neither of them is you. Now, a fear
+may come up. It is a strong fear, and many people feel it here. Let us meet it
+today, straight on.
 
 The fear says this. "If I stop criticizing myself, and if I lose the voice
 that pushes me, then what is left? Without the criticism and without the
