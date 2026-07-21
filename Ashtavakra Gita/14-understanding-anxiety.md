@@ -1,33 +1,87 @@
-# Lesson 14: Understanding Anxiety
+# Lesson 14: When the Mind Worries About Tomorrow
 
-Let us take everything we have learned and apply it to something that troubles almost all of us: worry about the future. Anxiety.
+Have you ever been lying in bed, exhausted, wanting nothing more than to sleep, but your mind refuses to stop?
 
-Imagine this. You are lying in bed at night, and sleep will not come. Tomorrow you have something important — a test, a meeting, a hard conversation. And your mind starts to think about it. It shows you one bad ending, and then another.
+Tomorrow holds something important—a meeting, an exam, a difficult conversation. And before long, the mind begins writing stories.
 
-A voice speaks in your mind.
+*"What if it goes badly?"*
 
-*"What if it goes wrong tomorrow? What if I fail? What if I cannot handle it?"*
+*"What if I fail?"*
 
-Your body feels it too. Your chest is tight. You cannot rest. And here is a strange thing: nothing has actually happened. You are lying safely in your bed. The trouble is not really here. It is only in the mind — in the thoughts about a tomorrow that has not come.
+*"What if I can't handle it?"*
 
-Now bring in what you have learned. All of this worry is a movement of the mind. These "what ifs" are only thoughts. They rose up on their own. You did not choose them. And if they came on their own, then they are not you. They are something you can watch.
+One thought leads to another, and another. Your heart beats a little faster. Your chest feels tight. Sleep seems further away than ever.
 
-So try this. Instead of being lost in the worry, simply notice it.
+But pause for a moment.
+
+What is actually happening right now?
+
+You are lying in your bed.
+
+The meeting has not begun.
+
+The exam has not started.
+
+The conversation has not happened.
+
+The body is here, in this moment. But the mind has travelled into a future that does not yet exist.
+
+Notice something else.
+
+Did you choose those thoughts?
+
+Or did they simply appear?
+
+The mind produced them on its own, just as it produces memories, plans, and daydreams. It is simply doing what minds do.
+
+Instead of trying to stop the thoughts or replace them with better ones, try something different.
+
+Just notice them.
 
 *"Worry is here."*
 
-Watch the thoughts come. One fearful thought, and then another, and then another. You are the one who sees them. And the one who sees the worry is not worried. The worry is in the mind. You are the quiet one, watching it.
+Watch one "what if" give rise to another. Watch the stories the mind keeps creating. You don't have to chase them, and you don't have to argue with them.
 
-And see this clearly. The future the mind is showing you is not real. It has not happened. It may never happen. It is only a story the mind is telling you right now. You do not have to believe the story, and you do not have to follow it. You can simply watch it pass.
+Now ask yourself a simple question.
 
-In that watching, a little space opens. And in that space, you come back to where you really are — here, now, safe in this moment. The worry is still there, but you are no longer lost inside it.
+If you can notice the worrying, who is doing the noticing?
 
-Let me be honest with you. This does not mean the worry will never come again. It will. The mind will keep thinking about the future. But when you can watch it instead of being it, it loses its hold. It rises, you watch, and it passes. And you are still here, calm underneath it.
+The thoughts keep changing. One moment they predict failure. The next they imagine embarrassment. Then they move on to something else entirely.
 
-So here is today's idea:
+But the one who notices them has not changed.
 
-**Anxiety is a movement of the mind. It is only thoughts about a future that has not come. It is not you. When it rises, do not believe it and do not fight it. Just watch it, and come back to this moment, where you are.**
+It was present before the worrying began. It remains while the worrying is happening. And it is still here after a particular thought fades away.
 
-The next time worry keeps you awake, do not struggle with it. Just watch. *"Worry is here."* See the thoughts for what they are — only thoughts. And notice the quiet one who is watching. That one is you, and that one is safe right now.
+The worry belongs to the mind.
 
-That is enough for today.
+The awareness that notices it does not worry.
+
+This doesn't mean anxious thoughts will never return. They probably will. The mind is designed to imagine possibilities, especially uncertain ones.
+
+But you don't have to believe every story it tells.
+
+You don't have to fight the thoughts either.
+
+Just watch them.
+
+They come.
+
+They stay for a while.
+
+Then they pass.
+
+And all the while, this moment remains exactly as it is.
+
+The next time worry keeps you awake, don't ask, *"How do I make these thoughts disappear?"*
+
+Instead, simply notice,
+
+*"Worry is here."*
+
+Then notice something even quieter.
+
+The thoughts come and go.
+
+The awareness that notices them does not.
+
+Perhaps that quiet awareness has been here all along.
