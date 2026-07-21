@@ -24,3 +24,12 @@ distribution (public domain). The full PDF is kept in this folder:
   by the text.
 - A citation like **1.6** means **Chapter 1, Verse 6**. The Gita has 20
   chapters (about 298 verses); Chapter 1 has 20 verses.
+
+## The "Going Deeper" section
+
+Part 4 (Going Deeper) works differently from the foundation. Here we **do**
+show each verse, one at a time, so the reader begins to learn the verses
+themselves. The verse is given in a **simplified English of our own** — plainer
+than the original wording, but faithful to its meaning — based on the John
+Richards translation. The exact Richards wording and the Sanskrit are always
+there in the folder PDF for anyone who wants them.
