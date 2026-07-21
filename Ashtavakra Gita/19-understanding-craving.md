@@ -1,25 +1,25 @@
 # Lesson 19: When You Can't Stop Wanting
 
-Have you ever wanted something so much that you were sure you'd be happy once you had it — and then, soon after you got it, found yourself wanting the next thing?
+Have you ever wanted something so much that you were sure, *"Once I have this, I'll finally be happy"*?
 
-It happens with almost everything. A new phone. A bigger house. One more scroll, one more snack, one more word of praise. The mind leans forward and says:
+Perhaps it was a new phone, a better job, a relationship, or simply the weekend after a difficult week. The mind keeps returning to it, saying, *"I just need this one thing. Then everything will feel better."*
 
-*"Once I have this, I'll finally be content."*
+Sometimes you get what you wanted. There is excitement, relief, and for a while life feels lighter. But before long, something familiar happens. The mind begins looking ahead again. It finds another goal, another purchase, another achievement. The object has changed, but the pattern has not. The wanting simply finds a new direction.
 
-So you chase it. And sometimes you get it. And for a little while, there is a good feeling. But have you noticed how quickly that feeling fades? Before long, the mind has already found something new to reach for. The wanting never really ends. It only changes what it wants.
+Pause for a moment and look closely at what happened when you finally got what you wanted. We usually assume that the happiness came from the object itself. But is that the whole story?
 
-Let us look closely at that good feeling — the one you get when you finally have the thing you wanted. Where does it actually come from?
+Notice what happened to the wanting. The search came to an end, if only for a little while. There was nothing more to chase, nothing more to imagine, nothing more to long for. For a brief moment, the restless movement of the mind became quiet.
 
-We assume it comes from the thing itself — the phone, the food, the praise. But look again. In the moment you get it, something quiet happens: the wanting stops. For a breath, there is nothing you are reaching for. And in that gap, you feel content.
+Perhaps that quietness had something to do with the peace you felt.
 
-So the peace did not come from the thing. It came from the wanting falling silent. The object did not give you peace. It only let you stop craving for a moment — and in that stillness, a peace that was already there could be felt.
+Of course, it didn't last. Soon the mind found something else to desire, and with that came the familiar feeling that something was still missing. The cycle began again.
 
-So here is something to try. The next time a craving pulls at you, don't rush to feed it, and don't scold yourself for having it. Just notice it.
+The next time you find yourself strongly wanting something, don't rush to satisfy the desire, and don't judge yourself for having it. Instead, simply notice,
 
 *"Wanting is here."*
 
-Feel how it pulls. Feel the restlessness, and the sense that something is missing. And then look underneath the wanting, to the one who is aware of it. That one is not restless. That one is not missing anything.
+Feel the pull toward the future. Notice the restlessness and the feeling that life will only be complete when something changes. Then ask yourself a quiet question: if you can notice the wanting, who is doing the noticing?
 
-You have been running after a hundred things, believing the peace was inside them. But the peace was never out there. It has been here all along, underneath the wanting, waiting only for the reaching to stop.
+The desire comes and goes. One day it is about a new phone. Another day it is about recognition, success, or approval. But the awareness that notices each desire remains the same. It was here before this wanting appeared, it is here while the wanting is present, and it will still be here after it has passed.
 
-Perhaps you do not have to get everything you want in order to find the contentment you have been chasing.
+This doesn't mean you should stop pursuing your goals or enjoying the good things in life. It simply means you don't have to expect them to complete you. Perhaps contentment is not something waiting at the end of the next achievement. Perhaps it is something that quietly reveals itself whenever the mind, even for a moment, stops reaching for somewhere else.
