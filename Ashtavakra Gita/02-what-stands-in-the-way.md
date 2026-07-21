@@ -16,8 +16,8 @@ Ashtavakra says something different. He says the thing that stops you is not
 outside you. It is inside you. It is a wrong idea in your own mind.
 
 You feel bound because you *think* you are bound. That thought is the only
-thing that binds you. It is not the world. It is not your money. It is not
-other people. It is only a wrong idea about yourself.
+thing that binds you. It is not the world, not your money, not other people —
+only a wrong idea about yourself.
 
 So here is the idea for today:
 
