@@ -1,25 +1,31 @@
-# Lesson 13: Understanding Anger
+# Lesson 13: When Anger Takes Over
 
-Of all the feelings that pass through us, anger may be the fastest. It comes in a moment, and in that same moment it already wants to act. This is what makes it so hard. There is almost no gap between feeling the anger and doing something we will later wish we had not done.
+Have you ever said something in anger, and wished, only a moment later, that you could take it back?
 
-So the whole work with anger is to find that gap — to put even one small breath between the feeling and the action.
+That is the hard thing about anger. It is fast. It arrives and it wants to act in the very same instant. There is barely a breath between feeling it and doing something you'll be sorry for.
 
-Here is how it happens. Someone speaks to you in a harsh way. At once your body tightens, and words are ready to come out. The anger has already made up its mind. It says:
+Think of the last time it happened. Someone spoke to you harshly, or did the very thing you'd asked them not to do. And almost before you knew it, your body was tight, your face was warm, and a sharp reply was already on its way.
 
-*"How can they treat me like this? I will not stand for it."*
+*"How can they treat me like this? I won't stand for it."*
 
-In that heated moment, do one small thing. Do not act, and do not argue with the anger. Just turn and look at it. Ask, quietly, who is feeling this?
+In that moment, there seems to be no space at all. You aren't watching the anger. You are the anger.
 
-Someone is. Someone is aware of the tight chest, the warm face, the words waiting to come out. And that someone — the one who is aware — is not angry. The anger is in the body and in the mind. You are the one who sees it there.
+But let me ask you something. Even then, in the middle of it — wasn't there some small part of you that knew you were angry?
 
-That small turn is the gap. It does not seem like much, but it is enough. Now there is a little room between you and the anger. And in that room, you are free. You can let the anger be there without letting it move your hands or your mouth. It will rise, and it will pass, the way every feeling passes — and you will not have done the thing you would be sorry for.
+There was. Something noticed the tight chest, the warm face, the words rushing up. And that something, the part that noticed, was not itself angry. It was only aware.
 
-This is not about becoming cold, or pretending you feel nothing. The anger may still be strong. You are simply no longer forced to obey it. You feel it, you watch it, and then you choose what to do — or you choose to do nothing at all.
+This is the small opening we are looking for. Not a way to stop the anger, but a way to step back from it, even a little. To feel it, and to know that you are feeling it, at the same time.
 
-So here is the heart of it:
+Try it, just once, the next time anger rises in you. Don't act, and don't argue with the anger. Simply turn toward it and notice.
 
-**Anger comes fast, and it wants to act at once. Your freedom is the small gap you make by turning to watch it. In that gap the anger is still there, but it no longer decides for you.**
+*"Anger is here."*
 
-The next time anger rises, do not try to win, and do not push it down. Just find the gap. Ask, who is feeling this? And stay there, as the one who watches — while the anger comes, and goes, on its own.
+In that noticing, a little room appears — a small distance between you and the feeling. The anger is still there. But now it isn't in control. You can let it be, and let it pass, without letting it move your hands or your mouth.
 
-That is enough for today.
+This isn't about becoming cold, or pretending you feel nothing. The anger may still be strong. You're simply not being pulled along by it anymore. You feel it, you watch it, and you stay free to choose what to do — or to do nothing at all.
+
+The anger will still come. But each time you can watch it instead of becoming it, you are a little more free. It rises, you notice, and it passes.
+
+And the one who noticed stayed calm through all of it.
+
+Perhaps that calm one, and not the anger, is who you really are.

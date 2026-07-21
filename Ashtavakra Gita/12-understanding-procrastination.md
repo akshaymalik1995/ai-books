@@ -1,54 +1,39 @@
-# Lesson 12: Understanding Procrastination
+# Lesson 12: When You Keep Putting Things Off
 
-Let us take everything we have learned and apply it to something almost everyone struggles with: procrastination.
+Have you ever sat down to do something important, and then, almost without deciding to, reached for your phone instead?
 
-Imagine this. You have something important to do. You sit down, ready to begin. Then, almost without thinking, you pick up your phone. A few minutes turn into twenty. The work is still waiting.
+You meant to begin. You really did. But a few minutes of scrolling turned into an hour, and the work is still sitting there, untouched.
 
-Notice what happens inside. One voice starts criticizing you.
+And inside, it isn't quiet.
 
-*"What is wrong with you? You're wasting time. You're going to fail."*
+One voice turns on you.
 
-Another voice jumps in.
+*"What's wrong with you? You always do this. You're going to fail."*
 
-*"Come on. Just force yourself to start. Five minutes. Get moving."*
+Another voice pushes.
 
-And beneath both of them is another impulse entirely—the simple desire to escape into your phone.
+*"Come on, just start. Force yourself. Five minutes."*
 
-Now look at all of this through Ashtavakra's teaching.
+So there you are, caught between the one who blames and the one who pushes — and somehow neither of them gets you working. You keep scrolling.
 
-The voice that blames you is just another movement of the mind. It is not you.
+Here is something worth noticing. You have used these two voices for years. The blaming, the pushing, the pressure. If they truly worked, you would have stopped putting things off long ago.
 
-The voice that pushes and pressures you is also just the mind. It is not you either.
+But they don't work. Have you seen that? The harder you scold and push, the heavier it all feels, and the more you want to escape.
 
-You are the one who notices both of them.
+So the problem was never that you weren't fighting yourself hard enough.
 
-This is important because neither voice actually solves the problem. If criticism and self-pressure worked, you would have stopped procrastinating long ago. Most likely, you have been using both for years.
+Let me offer you a different move. The next time you catch yourself stuck like this, don't join the fight. Don't side with the blaming, and don't side with the pushing. Just step back, and watch the whole thing.
 
-So what actually helps?
+*"Here is the blaming. Here is the pushing. Here is the wish to escape."*
 
-Not another battle.
+See all three, without becoming any of them.
 
-Just seeing.
+And now something can shift. When you stop fighting yourself, the noise begins to settle. In the quiet, you can see clearly, maybe for the first time. You see that the scrolling isn't really giving you anything. You see that the work does matter to you.
 
-When the blaming and the pushing begin to quiet down, something becomes obvious. You notice that scrolling is no longer giving you anything. You notice that the work genuinely matters to you. And from that simple clarity, action can arise naturally.
+And out of that clear seeing — not out of force — the first small step can begin on its own. You did not have to force yourself into it. It came the way simple things come, quietly, once the struggle stopped.
 
-You do not have to force it any more than you force your next breath. It simply happens.
+This doesn't mean you'll never put things off again. You will. But you can stop believing that the way out is to fight yourself harder.
 
-So today's idea is simple:
+The way is gentler than that. Watch the blaming. Watch the pushing. Let them settle. And notice the one who is watching — the one who was never in the fight at all.
 
-**When you put things off, the voice that blames you and the voice that pushes you are both just movements of the mind. They are not you. You do not have to win the inner battle. Let it become quiet, and allow clear seeing to guide your actions.**
-
-The next time you catch yourself procrastinating, do not rush to fix it. Just watch.
-
-Watch the part that wants to escape.
-
-Watch the part that blames.
-
-Watch the part that pushes.
-
-See that none of them is who you really are.
-
-That simple seeing begins to loosen their grip.
-
-That is enough for today.
-
+Perhaps, once you rest there, the doing takes care of itself.
