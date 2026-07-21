@@ -40,11 +40,11 @@ In the last verse, Ashtavakra asked why we still reach for more, even after we h
 
 It comes from not knowing yourself.
 
-Look at what he says. When you do not know what you are, you go after things â€” money, praise, pleasure â€” certain that they will finally make you happy. But you are mistaking them for something they are not. He gives a small, perfect picture of it. A person walks along the beach, sees a shell catching the light, and thinks, *"Silver!"* â€” and reaches for it in greed. But it was only a shell. The silver was never there.
+Look at what he says. When you do not know what you are, you go after things — money, praise, pleasure — certain that they will finally make you happy. But you are mistaking them for something they are not. He gives a small, perfect picture of it. A person walks along the beach, sees a shell catching the light, and thinks, *"Silver!"* — and reaches for it in greed. But it was only a shell. The silver was never there.
 
-That is what we do with almost everything we chase. We see a thing shining â€” a bigger house, a person's approval, a good feeling â€” and we are sure our happiness is inside it. So we reach. And when we finally have it, the shine fades, because the happiness was never really in the thing. We only thought it was, because we did not know ourselves.
+That is what we do with almost everything we chase. We see a thing shining — a bigger house, a person's approval, a good feeling — and we are sure our happiness is inside it. So we reach. And when we finally have it, the shine fades, because the happiness was never really in the thing. We only thought it was, because we did not know ourselves.
 
-Notice how gentle this is, underneath. Ashtavakra is not calling you foolish for wanting. He is showing you why the wanting never ends: you have been reaching for silver that was always just shell. The moment you know yourself â€” the whole, quiet awareness that needs nothing â€” the desperate reaching begins to loosen on its own.
+Notice how gentle this is, underneath. Ashtavakra is not calling you foolish for wanting. He is showing you why the wanting never ends: you have been reaching for silver that was always just shell. The moment you know yourself — the whole, quiet awareness that needs nothing — the desperate reaching begins to loosen on its own.
 
 So the next time you feel that strong pull toward something, you might ask, quietly: is this silver, or is it shell? And who is the one that already lacks nothing?
 
@@ -58,13 +58,13 @@ Ashtavakra now gives us one of the great images of the whole book.
 
 Look at the sea. Waves rise, and waves fall. There are big waves and small ones, still days and wild days. But every wave is only the sea, lifting and falling for a moment. No wave is separate from the water. No wave is ever truly lost.
 
-He says the whole world is like this. Everything that happens â€” every event, every person, every thought and feeling â€” rises and falls like a wave. And you? You are not one small wave, tossed about among the others. You are the sea itself. All of it is rising and falling within you.
+He says the whole world is like this. Everything that happens — every event, every person, every thought and feeling — rises and falls like a wave. And you? You are not one small wave, tossed about among the others. You are the sea itself. All of it is rising and falling within you.
 
-Now hear his question. Once you have seen this â€” *"I am that sea"* â€” why do you still run around like someone poor, like someone who is missing something and must chase it down?
+Now hear his question. Once you have seen this — *"I am that sea"* — why do you still run around like someone poor, like someone who is missing something and must chase it down?
 
 This is the gap again. A wave cannot be richer or poorer than another; it is all water. The sea is not missing anything. And yet, even after glimpsing that you are the sea, the old thin fear of not having enough returns, and off you go, chasing.
 
-Ashtavakra is not shaming that. He is inviting you to catch yourself in the act. The next time you feel that anxious, hurrying, not-enough feeling â€” the running â€” you might pause and remember the sea. You are not a small thing that has to grab at the waves. You are the wide water in which they all come and go.
+Ashtavakra is not shaming that. He is inviting you to catch yourself in the act. The next time you feel that anxious, hurrying, not-enough feeling — the running — you might pause and remember the sea. You are not a small thing that has to grab at the waves. You are the wide water in which they all come and go.
 
 ---
 
@@ -88,7 +88,7 @@ So when desire comes up after a moment of genuine understanding, it doesn't mean
 
 And because of that, you don't have to fight the pull. But you don't have to obey it either. You can simply see it clearly and say, "Here's the old habit, still moving, in someone who has heard the truth."
 
-And that clear, unashamed seeingâ€”that's where the soaking begins.
+And that clear, unashamed seeing—that's where the soaking begins.
 
 And as we'll see in the next verse, desire isn't the only old habit that continues to linger.
 
@@ -98,23 +98,23 @@ And as we'll see in the next verse, desire isn't the only old habit that continu
 
 > *Ashtavakra:* "When a wise person has seen that they live in all beings, and all beings live in them, it is astonishing that the feeling of being a separate someone can still go on."
 
-So, weâ€™ve already seen that desire is one habit that can keep going even after the truth has been heard. Now Ashtavakra points to another habit, and this one goes even deeper.
+So, we’ve already seen that desire is one habit that can keep going even after the truth has been heard. Now Ashtavakra points to another habit, and this one goes even deeper.
 
-Itâ€™s the feeling of being a separate someone.
+It’s the feeling of being a separate someone.
 
-Just think about what the wise person has actually seen. Theyâ€™ve looked into their own nature, and theyâ€™ve discovered that it isnâ€™t limited or fenced in anywhere. The same awareness thatâ€™s looking out through their eyes is looking out through every pair of eyes. Theyâ€™re in all beings, and all beings are in them, in the same way that every wave is in the sea, and the sea is in every wave.
+Just think about what the wise person has actually seen. They’ve looked into their own nature, and they’ve discovered that it isn’t limited or fenced in anywhere. The same awareness that’s looking out through their eyes is looking out through every pair of eyes. They’re in all beings, and all beings are in them, in the same way that every wave is in the sea, and the sea is in every wave.
 
 And yet, the next morning they wake up, and the old feeling is still there. *Me.* This one person, inside this one body, facing everyone else.
 
-Ashtavakra finds that astonishing. And notice something important here. He doesnâ€™t say itâ€™s disgraceful. He doesnâ€™t call it stupid, and he doesnâ€™t treat it as a sign of failure. He simply marvels at it. Itâ€™s a bit like noticing that the moon still seems to follow your car, even though you know perfectly well that it isnâ€™t.
+Ashtavakra finds that astonishing. And notice something important here. He doesn’t say it’s disgraceful. He doesn’t call it stupid, and he doesn’t treat it as a sign of failure. He simply marvels at it. It’s a bit like noticing that the moon still seems to follow your car, even though you know perfectly well that it isn’t.
 
-Thatâ€™s really worth taking in, because this sense of being a separate â€œmeâ€ is probably the oldest habit we have. It was there before every other habit. It formed before we could even speak. So of course it doesnâ€™t disappear the moment the truth is seen. It just starts up again by itself, like a machine that keeps humming for a while even after youâ€™ve switched the power off.
+That’s really worth taking in, because this sense of being a separate “me” is probably the oldest habit we have. It was there before every other habit. It formed before we could even speak. So of course it doesn’t disappear the moment the truth is seen. It just starts up again by itself, like a machine that keeps humming for a while even after you’ve switched the power off.
 
-So you donâ€™t have to fight this feeling, and you donâ€™t have to pretend it isnâ€™t there. When it appearsâ€”and it willâ€”you can simply notice it with that same gentle astonishment: *There it is again. The little me, still humming.*
+So you don’t have to fight this feeling, and you don’t have to pretend it isn’t there. When it appears—and it will—you can simply notice it with that same gentle astonishment: *There it is again. The little me, still humming.*
 
 And the interesting thing is, whatever is noticing it is already wider than it.
 
-And this stubborn little hum of â€œmeâ€ also explains the next thing Ashtavakra is about to marvel at.
+And this stubborn little hum of “me” also explains the next thing Ashtavakra is about to marvel at.
 
 ---
 
@@ -134,7 +134,7 @@ That's what Ashtavakra finds so astonishing. It's not that understanding is miss
 
 You can actually see this in ordinary life, can't you? Someone can understand everything about their own anger and still lose their temper. A doctor can know exactly what smoking does to the body and still smoke. So even deep, genuine understanding doesn't automatically take the driver's seat.
 
-Now, Ashtavakra isn't saying that this person's realization is false. That's not his point. He's simply holding up the strangeness of the situation so that we stop being naÃ¯ve about ourselves. If even someone who is completely devoted to freedom can be pulled off the road by old desires, then it's really no scandal when it happens to us. It's simply a reminder of how powerful these old currents are, and how honest we have to be in recognizing them.
+Now, Ashtavakra isn't saying that this person's realization is false. That's not his point. He's simply holding up the strangeness of the situation so that we stop being naïve about ourselves. If even someone who is completely devoted to freedom can be pulled off the road by old desires, then it's really no scandal when it happens to us. It's simply a reminder of how powerful these old currents are, and how honest we have to be in recognizing them.
 
 So if you ever find yourself in a situation where you understand something completely and still act against your own understanding, let this verse stay with you. You're not uniquely weak. You've simply run into the same astonishing gap that Ashtavakra saw.
 
@@ -146,47 +146,47 @@ And then Ashtavakra is going to show us that desire still has one more surprise 
 
 # Verse 3.7
 
-> *Ashtavakra:* "It is astonishing that someone grown weak with age, who knows very well that the flaring up of desire is the enemy of clear knowing, still hankers after pleasure â€” even in his last days."
+> *Ashtavakra:* "It is astonishing that someone grown weak with age, who knows very well that the flaring up of desire is the enemy of clear knowing, still hankers after pleasure — even in his last days."
 
-Hereâ€™s desireâ€™s last surprise, and itâ€™s a sobering one.
+Here’s desire’s last surprise, and it’s a sobering one.
 
-Ashtavakra asks you to picture someone near the end of life. Their body is worn out. There isnâ€™t much strength left. They can hardly enjoy pleasure anymore. And more than that, they know from a lifetime of experience that every time craving comes up, it clouds the clear knowing they care about most.
+Ashtavakra asks you to picture someone near the end of life. Their body is worn out. There isn’t much strength left. They can hardly enjoy pleasure anymore. And more than that, they know from a lifetime of experience that every time craving comes up, it clouds the clear knowing they care about most.
 
 And still, the craving continues.
 
-The mind still reaches for pleasure, even when it canâ€™t really enjoy it anymore.
+The mind still reaches for pleasure, even when it can’t really enjoy it anymore.
 
-Now, that tells you something important about craving. It isnâ€™t really about enjoyment. If it were, it would fade when the enjoyment faded, just like your appetite fades once your stomach is full.
+Now, that tells you something important about craving. It isn’t really about enjoyment. If it were, it would fade when the enjoyment faded, just like your appetite fades once your stomach is full.
 
-But that isnâ€™t how craving works.
+But that isn’t how craving works.
 
-Craving is more like a groove thatâ€™s been worn into the mind through years of repetition. And once that groove is there, it doesnâ€™t need a reason to keep going. It can keep running on empty. It can outlive your ability to enjoy. It can outlive your health. It can even outlive your belief that indulging is worth it.
+Craving is more like a groove that’s been worn into the mind through years of repetition. And once that groove is there, it doesn’t need a reason to keep going. It can keep running on empty. It can outlive your ability to enjoy. It can outlive your health. It can even outlive your belief that indulging is worth it.
 
 So we should be gentle with this, both in other people and in ourselves.
 
-When you see an older person still grasping after things, or when you notice in yourself a wanting that keeps going long after the pleasure has become stale, what youâ€™re seeing isnâ€™t wickedness.
+When you see an older person still grasping after things, or when you notice in yourself a wanting that keeps going long after the pleasure has become stale, what you’re seeing isn’t wickedness.
 
-Itâ€™s momentum.
+It’s momentum.
 
 At the same time, we should also be honest about what that means.
 
-If craving doesnâ€™t fade on its own, then simply waiting for it to fade isnâ€™t really a plan. The passing years wonâ€™t do the work for you.
+If craving doesn’t fade on its own, then simply waiting for it to fade isn’t really a plan. The passing years won’t do the work for you.
 
 The groove is only softened by what Ashtavakra has been pointing to all along: knowing yourself as the one in whom all of this wanting arises and passes away.
 
-So thereâ€™s no need to wait for some quieter stage of life before taking these teachings seriously.
+So there’s no need to wait for some quieter stage of life before taking these teachings seriously.
 
-That quiet doesnâ€™t come from the calendar.
+That quiet doesn’t come from the calendar.
 
 It comes from seeing.
 
-And thatâ€™s exactly why the next verse is so strangeâ€”and so beloved.
+And that’s exactly why the next verse is so strange—and so beloved.
 
 ---
 
 # Verse 3.8
 
-> *Ashtavakra:* "It is astonishing that someone with no attachment to this world or the next, who can tell the lasting from the passing, and who longs for freedom â€” should still be afraid of freedom."
+> *Ashtavakra:* "It is astonishing that someone with no attachment to this world or the next, who can tell the lasting from the passing, and who longs for freedom — should still be afraid of freedom."
 
 Of all the surprising things in this chapter, I think this one is probably the most gentle and touching.
 
@@ -204,7 +204,7 @@ And even if that little "me" has felt cramped, even if it's suffered a great dea
 
 So the seeker arrives at the very doorway they've been walking toward all this time... and they hesitate.
 
-If you've ever noticed this in yourselfâ€”this strange reluctance right at the edge of letting go, this tendency to pull back just when peace comes closeâ€”please don't take that as proof that you're not ready, or that your longing isn't sincere.
+If you've ever noticed this in yourself—this strange reluctance right at the edge of letting go, this tendency to pull back just when peace comes close—please don't take that as proof that you're not ready, or that your longing isn't sincere.
 
 Ashtavakra saw this in advanced seekers.
 
@@ -294,15 +294,15 @@ He says that the great soul watches their own body in action as if it were someo
 
 Just think for a moment about how you respond when you hear praise or blame about another person. If someone tells you your neighbor did something well, or did something badly, you can listen with interest. You might agree or disagree. But those words don't really enter you, because they're about someone else. Nothing inside you swells or shrinks.
 
-Now compare that with what happens when the very same words are about you. Suddenly they land somewhere soft. So the difference isn't in the words themselves. The difference is one small belief: *this body, these actionsâ€”that's me.*
+Now compare that with what happens when the very same words are about you. Suddenly they land somewhere soft. So the difference isn't in the words themselves. The difference is one small belief: *this body, these actions—that's me.*
 
-The wise person has seen through that belief. They still act. The body still works, still speaks, still makes mistakes. Sometimes it does things well, and sometimes it doesn't. But they watch all of that activity the way you would watch the neighborâ€”with interest, even with care, but from a quiet step back.
+The wise person has seen through that belief. They still act. The body still works, still speaks, still makes mistakes. Sometimes it does things well, and sometimes it doesn't. But they watch all of that activity the way you would watch the neighbor—with interest, even with care, but from a quiet step back.
 
 So when praise comes, it's praise of something they can see, but are not. And when blame comes, it's exactly the same.
 
 Now, this might sound a little distant. It might seem as though such a person has somehow abandoned their own life. But actually, it's the opposite. The only thing that ends is the swelling and shrinking. Care is still there. Responsibility is still there. What falls away is the constant flinching.
 
-You can even get a small taste of this yourself. The next time you find yourself replaying something you said and feeling the sting of how it came across, try watching that whole scene as if the person speaking were someone you loveâ€”someone who's simply doing their best.
+You can even get a small taste of this yourself. The next time you find yourself replaying something you said and feeling the sting of how it came across, try watching that whole scene as if the person speaking were someone you love—someone who's simply doing their best.
 
 Then notice what happens. Notice how the sting begins to soften when the watcher takes that small step back.
 
@@ -312,7 +312,7 @@ And that small step back is exactly the direction Ashtavakra has been pointing a
 
 # Verse 3.11
 
-> *Ashtavakra:* "Seeing this world as a passing appearance, and having no stake in it, how should a steady person feel fear â€” even when death draws near?"
+> *Ashtavakra:* "Seeing this world as a passing appearance, and having no stake in it, how should a steady person feel fear — even when death draws near?"
 
 So, we saw that praise and blame can't really disturb someone who's able to watch their own body from a step back. Now Ashtavakra takes that same step back all the way to its furthest point.
 
@@ -346,9 +346,9 @@ Now, disappointment is usually the moment when wanting shows its real strength. 
 
 So look carefully at what's being said here. This person's mind remains free of wanting even in that moment. Not because they've forced themselves not to have wishes, but because their contentment was never resting on the outcome in the first place. Their contentment rests on knowing themselves. And that knowing doesn't become greater when life goes well, and it doesn't break apart when life goes badly. It's simply there, like the ground beneath your feet.
 
-That's why Ashtavakra says no one can really be compared to such a person. Every other kind of satisfied person is satisfied because of somethingâ€”because of health, success, love, comfort, or whatever it may be. And if satisfaction depends on those things, then it can disappear when those things disappear. But a contentment that depends on nothing has no rival, because it's not even playing the same game.
+That's why Ashtavakra says no one can really be compared to such a person. Every other kind of satisfied person is satisfied because of something—because of health, success, love, comfort, or whatever it may be. And if satisfaction depends on those things, then it can disappear when those things disappear. But a contentment that depends on nothing has no rival, because it's not even playing the same game.
 
-Now, most of us aren't there yet, and that's perfectly all right. But this verse gives us a very practical mirror to look into. The next time disappointment comesâ€”and it willâ€”a plan falls through, or a hope quietly comes to an end, just watch your own mind. See how quickly wanting rushes in to fill that gap.
+Now, most of us aren't there yet, and that's perfectly all right. But this verse gives us a very practical mirror to look into. The next time disappointment comes—and it will—a plan falls through, or a hope quietly comes to an end, just watch your own mind. See how quickly wanting rushes in to fill that gap.
 
 And if you can simply notice that rush without immediately following it, that's already a beginning.
 
@@ -394,7 +394,7 @@ Now, at first, that sounds a little strange. You might wonder, "How can pleasure
 
 What he means is that it no longer carries the old emotional charge.
 
-For most of us, pleasure is rarely just pleasure. Before it arrives, there's craving. While it's happening, there's clinging. And afterward, there's often a little acheâ€”the wish to have it again, the fear of losing it, or the disappointment when it fades. That's usually what we mean by pleasure. It's wrapped up in all of those extra movements of the mind. And in that sense, pain and pleasure always come together as a pair.
+For most of us, pleasure is rarely just pleasure. Before it arrives, there's craving. While it's happening, there's clinging. And afterward, there's often a little ache—the wish to have it again, the fear of losing it, or the disappointment when it fades. That's usually what we mean by pleasure. It's wrapped up in all of those extra movements of the mind. And in that sense, pain and pleasure always come together as a pair.
 
 The free person has stepped outside that pair.
 
@@ -402,7 +402,7 @@ When something delightful comes, it's received fully and simply. And when it goe
 
 Now notice how beautifully this brings the whole chapter full circle.
 
-At the beginning, Ashtavakra is almost marveling that we keep chasing pleasure even after hearing the truth. And by the end, we discover something surprising. When the chasing stops, pleasure isn't lost at all. Whatever comes by itself can still be enjoyedâ€”perhaps even more completely than beforeâ€”because you're no longer asking it to complete you.
+At the beginning, Ashtavakra is almost marveling that we keep chasing pleasure even after hearing the truth. And by the end, we discover something surprising. When the chasing stops, pleasure isn't lost at all. Whatever comes by itself can still be enjoyed—perhaps even more completely than before—because you're no longer asking it to complete you.
 
 So nothing has to be renounced, and nothing has to be pursued.
 
@@ -410,4 +410,4 @@ Things come, and things go, and you remain.
 
 Let's just let the chapter end there, quietly.
 
-What remainsâ€”the one who stays while everything else comes and goesâ€”is exactly where the teaching turns next.
+What remains—the one who stays while everything else comes and goes—is exactly where the teaching turns next.
