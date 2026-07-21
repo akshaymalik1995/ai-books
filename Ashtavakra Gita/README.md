@@ -12,16 +12,19 @@ then stop and think about it.
 
 ## How this book is arranged
 
-The book comes in two parts.
+The book comes in three parts, one to each folder.
 
-**The path (Lessons 1 to 11).** These are the heart of the teaching. Read them
-in order, one at a time, because each one rests on the one before it. Together
-they show you who you really are.
+**Part 1 — The Path (Lessons 1 to 11).** These are the heart of the teaching.
+Read them in order, one at a time, because each one rests on the one before it.
+Together they show you who you really are.
 
-**In real life (the "Understanding ..." lessons).** Once you have walked the
-path, these lessons take the teaching into the real places where we struggle —
-putting things off, anger, worry, and more. You can read these in any order,
-and return to whichever one you need on a given day.
+**Part 2 — In Real Life (Lessons 12 to 19).** Once you have walked the path,
+these lessons take the teaching into the real places where we struggle —
+putting things off, anger, worry, grief, and more. You can read these in any
+order, and return to whichever one you need on a given day.
+
+**Part 3 — Closing (Lessons 20 and 21).** A last word before you go: that this
+will not make you cold, and how to carry it into your ordinary days.
 
 When you are ready, we will begin.
 
