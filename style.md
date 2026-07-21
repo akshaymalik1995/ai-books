@@ -1,159 +1,60 @@
 # Style Guide
 
-This is how we write and learn the books in this project.
+How we write the lessons in this book.
 
-## The Learning Method
+These are not rules to follow like a machine. They are reminders. The real
+work is to look at the lesson in front of you and give it what it needs.
 
-**One idea at a time.**
-Each lesson teaches a single idea. We do not mix many ideas together. The
-reader finishes one small thought, feels it settle, and only then moves to
-the next one.
+## What matters
 
-**Simple, clear language.**
-Use plain words. Avoid hard or fancy language. If a big word is needed,
-explain it in simple words. A person who is new to English, or new to the
-subject, should still understand every line.
+**One idea.** Each lesson holds a single idea. The reader finishes one small
+thought, lets it settle, and moves on.
 
-**A one-on-one conversation.**
-The author talks *directly to the reader*. Use "you" and "I". Write as if the
-two of you are sitting together, talking quietly. It is not a lecture to a
-crowd. It is a warm, personal talk between two people.
+**Plain words.** Simple, ordinary language. No fancy words, no clever phrases,
+no scene-painting. This is a teaching book, not a novel. If a big word is
+needed, explain it plainly.
 
-**Plain, not fancy.**
-Say the thing directly. No literary magic, no clever turns of phrase, no
-showing off, no scene-painting. This is a teaching book, not a novel. Do not
-try to sound beautiful or poetic, and do not decorate feelings with color
-("fast and hot", "a voice comes, quick and sure"). Just say plainly what
-happens.
+**Sound like a person.** Read it aloud in your head. It should sound like one
+person talking gently to another. Use whole sentences — never choppy, clipped
+fragments ("Not the fight. Clear seeing."). Short is fine; broken is not.
 
-## The Feel of the Writing
+**Room to breathe.** Flowing paragraphs, often a single sentence, with white
+space around them. Do not cram, and do not wrap text into cramped lines. The
+calm is in the spacing.
 
-**Natural rhythm — sound like a person speaking.**
-Read it aloud in your head. It should sound like a real person talking to a
-friend, not a textbook and not a formula. Sentences may be short, but they
-must be whole sentences — never choppy, clipped fragments strung together
-("Not the fight. Clear seeing."). Let the length vary. A short line can land
-hard, but only when you give it room.
+**Warm and direct.** Speak to the reader as "you". Sit beside them; do not
+lecture them.
 
-**Room to breathe.**
-Write in flowing paragraphs. Give each small beat its own paragraph, with a
-blank line around it. Often a single sentence is its own paragraph. Do not
-cram many thoughts into one block, and do not break a paragraph into cramped,
-wrapped lines. White space is part of the calm.
+**Let the voices speak.** When the mind talks — a fear, a doubt, a harsh word —
+set it on its own line, in *italics*, in the words it really uses.
 
-**Let the voices speak.**
-When the mind speaks — a fear, a doubt, a voice that blames or pushes — set it
-on its own line, in *italics*, and let it talk the way it really talks, with
-everyday contractions:
+**Do not repeat yourself.** The teaching returns from lesson to lesson, so the
+idea will recur — but the words and the shape must not. Do not build every
+lesson from one template. If two lessons open, or turn, the same way, rewrite
+one.
 
-*"What if I fail? What if I can't handle it?"*
+**Decide what each lesson needs.** This is the important one. Some lessons help
+the reader see that a feeling is not who they are. Some hold a feeling that
+should not be pushed away, like grief. Some simply give a plainer, wiser way to
+meet a thing, like desire. Do not force one move onto all of them. Look at the
+feeling itself, and give what it asks for.
 
-**Do not repeat the same lines.**
-The teaching is the same from lesson to lesson, so the *idea* will return —
-but the words and the shape must not. Do not build every lesson from one
-template. If two lessons open the same way, or reach the turn with the same
-sentence, rewrite one. Each lesson finds its own way in.
+## Two kinds of lesson
 
-## The Two Kinds of Lesson
+The path lessons (1 to 11) carry the teaching in order, each building on the
+last. They may name Ashtavakra, and they end with a clear idea.
 
-The book has two kinds of lesson, written a little differently.
+The real-life lessons (the "When ..." lessons) take the teaching into a real
+struggle. They are softer, they lead by asking, they usually leave the teaching
+unnamed, and they end open rather than with a rule.
 
-### The path lessons (Lessons 1 to 11)
+To feel the voice of each kind, read the ones already written.
 
-These carry the teaching itself, in order, each one building on the one
-before. The narration here stays calm and a little measured, and uses full
-forms ("you do not", "it is not"). Their shape:
+## The verses
 
-1. Open with a little context, or the reader's own situation.
-2. Bring in the one idea. Where it fits, say plainly what Ashtavakra teaches.
-3. Make it real with one simple example.
-4. State the one idea again, in **bold**.
-5. Close gently — "That is enough for today." — and point to the next lesson.
-
-### The real-life lessons (the "When ..." lessons)
-
-These take the teaching into a real struggle — worry, anger, comparison, and
-so on. They stand on the whole path, so they can be read in any order. They
-are softer, warmer, and they lead the reader by *asking* rather than telling.
-
-- **Title it as a moment.** "When the Mind Worries About Tomorrow." "When You
-  Compare Yourself to Others." A moment the reader will know at once.
-- **Open with a question.** "Have you ever ...?" Bring the reader straight into
-  their own experience.
-- **Lead by asking, not telling.** Do not hand over the answer. Ask the
-  questions that let the reader see it for themselves: "Did you choose those
-  thoughts, or did they simply appear?" "If you can notice the worry, who is
-  doing the noticing?"
-- **Use plain, felt words — no labels.** Here we usually do not say "the
-  witness", and we do not name Ashtavakra. We say "the awareness that notices",
-  "the one who notices", "the quiet awareness". Let the reader meet the thing
-  directly, without a name on it.
-- **Be warm and spoken.** Natural contractions are welcome here ("you don't
-  have to", "it doesn't mean").
-- **Do not end with a rule.** These lessons have no bold idea to memorise, and
-  no "That is enough for today." They end open and soft — an invitation to keep
-  looking, not a full stop.
-
-**Match the help to the struggle.**
-Not every lesson makes the same turn, and you must never force one turn onto
-all of them. These lessons give two kinds of help. Before writing, ask which
-one *this* struggle needs — and give only that.
-
-- **See who you are.** Sometimes the healing is to notice that the thought or
-  feeling is not you, and that the quiet awareness watching it is what you
-  truly are. This suits struggles that hurt because we take a passing feeling
-  *to be* ourselves: self-criticism, worry, anger, comparison, loneliness.
-  Grief, too, comes to rest here — the awareness that holds the sorrow is you.
-  These lessons may end with a quiet "Perhaps that is who you really are."
-- **How to meet it.** Sometimes the reader does not need the "who am I?"
-  question at all. They need a plain, wiser way to handle the thing. This suits
-  struggles like desire and putting things off. With desire, the real question
-  is not "who am I?" but "how do I deal with this pull?" Do not drag in "the
-  awareness is you" where it is not needed. Let the lesson end on the practical
-  seeing instead.
-
-A rough flow for a *see-who-you-are* lesson (only one of the two shapes):
-
-1. A question, and the everyday moment.
-2. The mind's voices, each on its own italic line.
-3. "Pause." Come back to what is actually happening right now.
-4. Notice the thoughts came on their own — you did not choose them.
-5. Invite noticing, instead of fixing or fighting.
-6. Ask who is doing the noticing.
-7. Point to the awareness that does not change — here before, during, after.
-8. An honest word — the feeling will return; you need not believe it, and
-   need not fight it.
-9. A soft, open ending — "Perhaps that is who you really are."
-
-A *how-to-meet-it* lesson is shaped differently: it leads to a practical
-insight about how the thing works and how to hold it, and it needs no turn to
-"who you are" at all.
-
-## The Verses
-
-The verses of the Ashtavakra Gita are our **guide**, not something the reader
-sees. `verse-map.md` keeps each lesson tied to a verse so we stay true to the
-text and do not drift. We do **not** quote the verses in the lessons. In the
-path lessons, where a verse fits, we mention what Ashtavakra says in plain
-words. In the real-life lessons, we usually leave the teaching unnamed, and
-simply let the reader see it.
-
-## Quick Checklist
-
-Before finishing a lesson, check:
-
-- [ ] Does this lesson hold only **one** idea?
-- [ ] Are the words **simple** and the sentences **clear**?
-- [ ] Does it sound like **a person speaking to you** — natural, not choppy?
-- [ ] Is it **plain**, with no scene-painting or decoration?
-- [ ] Does it **avoid the same lines** used in other lessons?
-- [ ] Are the inner voices **set off in italics** and alive?
-- [ ] Does the page have **room to breathe**?
-- [ ] For a real-life lesson: does it **lead by asking**, and end **open and
-      soft** rather than with a rule?
-- [ ] Would a reader feel **calm and clear** at the end?
+The verses of the Ashtavakra Gita are our quiet guide, kept in `verse-map.md`.
+We do not quote them in the lessons. We let them keep us honest.
 
 ## Tone
 
-Gentle. Patient. Kind. Never in a hurry. We move slowly, one small step at
-a time, and we let each idea rest before we take the next step.
+Gentle. Patient. Kind. Never in a hurry.
