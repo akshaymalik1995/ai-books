@@ -1,25 +1,31 @@
 # Lesson 18: When You Feel Alone
 
-Have you ever felt alone even in a room full of people — as if no one could really reach you?
+Have you ever felt lonely even in a room full of people?
 
-Loneliness is a strange ache. It is not always about being by yourself. You can feel it in an empty house at night, and you can feel it just as sharply in the middle of a party. It is the feeling of being unseen, uncared for, cut off from everyone.
+It is a strange feeling. You can spend the day talking to others, laughing with them, and still return home with the sense that no one really knows you. The mind quietly begins to tell a story.
 
-A voice says:
+*"No one understands me."*
 
-*"No one really knows me. No one is here for me. I am on my own."*
+*"No one is really here for me."*
 
-Let us be honest first. It is natural to want people. It is good to want to be seen, and held, and understood. This lesson is not going to tell you that you don't need anyone. You do, and that is human.
+*"I am alone."*
 
-But notice something about loneliness. Being alone and feeling lonely are not the same thing. Some people sit by themselves and feel completely at peace. Others are surrounded by people and feel utterly alone. So the ache is not made only by how many people are near you. Much of it is a feeling in the mind — a story it tells about being separate and left out.
+Before going any further, let us be clear about something. There is nothing wrong with wanting companionship. We all want to be seen, understood, and loved. This is not about pretending that we don't need other people or that relationships don't matter. They do.
 
-So the next time the ache comes, try not to run from it, and try not to cover it over with your phone or with noise. Just turn toward it, gently.
+But notice something. Being alone and feeling lonely are not the same thing. Some people spend an afternoon by themselves and feel completely at peace. Others are surrounded by family and friends, yet still feel isolated. So loneliness cannot simply be the absence of people. There is something else happening.
+
+The next time that feeling appears, instead of reaching for your phone or trying to distract yourself, pause for a moment. Simply notice,
 
 *"Loneliness is here."*
 
-Feel it, and notice that you are the one who is aware of it. And here is something quiet, and easy to miss. Whoever is aware of the loneliness has been with you this whole time. Through every day of your life, in every room, alone or in a crowd, that quiet presence has never once left you.
+Notice the heaviness in your chest. Notice the thoughts saying that you are disconnected or forgotten. Notice the urge to escape the feeling.
 
-You have always had your own company. Not the noisy company of thoughts, but the still one underneath — the one that is simply here, aware, keeping you company even now, as you read this.
+Now ask yourself a quiet question. If you can notice the loneliness, who is doing the noticing?
 
-This does not mean you should stop reaching out to others. Reach out. Call the friend. But you may find that when you stop running from the loneliness, and remember the quiet presence that is always with you, the ache begins to soften. You may be by yourself. But you were never as abandoned as the feeling made it seem.
+The feeling is changing. At one point today it wasn't there. Now it is. Later it will become weaker, and perhaps it will disappear altogether. Yet something has remained the same throughout. There is an awareness that was present before the loneliness appeared, that remains while it is here, and that will still be present after it has passed.
 
-Perhaps the one who has been with you all along is nearer than anyone else could ever be.
+This does not mean the loneliness isn't real. It is. The ache can be deep. But perhaps it is not the whole story. There is also this quiet awareness that has never left you, not for a single moment of your life. Whether you are sitting alone in your room or surrounded by people, it is simply here, noticing every experience as it comes and goes.
+
+None of this means you should stop reaching out to people. Call a friend. Spend time with those you love. Human connection matters. But you may discover that when you stop running from loneliness and simply allow yourself to be with it, something begins to soften. The feeling is still there, yet you are no longer completely lost inside it.
+
+Perhaps that is why being alone and feeling lonely are not the same. One describes your circumstances. The other is an experience moving through the mind. And quietly, underneath both, there is the awareness that has been with you all along.
