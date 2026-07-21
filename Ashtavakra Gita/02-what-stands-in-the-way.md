@@ -15,9 +15,9 @@ the not-free feeling stays. It comes back again and again.
 Ashtavakra says something different. He says the thing that stops you is not
 outside you. It is inside you. It is a wrong idea in your own mind.
 
-You feel bound because you *think* you are bound. That thought is the real
-chain. Not the world. Not your money. Not other people. Just a wrong idea
-about yourself.
+You feel bound because you *think* you are bound. That thought is the only
+thing that binds you. It is not the world. It is not your money. It is not
+other people. It is only a wrong idea about yourself.
 
 So here is the idea for today:
 
@@ -25,8 +25,8 @@ So here is the idea for today:
 you.**
 
 This is good news. An outside thing is hard to change. But an idea can be
-seen and dropped. If the chain is only an idea, then you are closer to free
-than you thought.
+seen and dropped. If it is only an idea, then you are closer to free than you
+thought.
 
 That is enough for today.
 

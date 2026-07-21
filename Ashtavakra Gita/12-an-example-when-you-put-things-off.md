@@ -21,8 +21,8 @@ noise in the mind. And notice one thing. They do not even work. You have
 blamed and pushed yourself for years. And here you still are, scrolling. That
 noise was never what made you act.
 
-So what does? Not the fight. Clear seeing. When the blaming and the pushing go
-quiet, you can simply see. You see that the scrolling is empty right now. You
+So what does move you? It is not the fight. It is clear seeing. When the
+blaming and the pushing go quiet, you can simply see. You see that the scrolling is empty right now. You
 see that the work matters to you. And then the doing can start on its own. You
 are not the doer. The doing happens, and you watch it. It is just like your
 breath, which happens on its own while you watch.
@@ -34,7 +34,8 @@ just the mind. You are not the doer. So you do not have to win the fight. Let
 it go quiet, and let clear seeing move you.**
 
 Do not try to force this. The next time you put something off, just watch the
-whole thing. The escaping. The blaming. The pushing. See that not one of them
-is you. That seeing alone begins to loosen the hold.
+whole thing. Watch the part that escapes. Watch the part that blames. Watch
+the part that pushes. See that not one of them is you. That seeing alone
+begins to loosen the hold.
 
 That is enough for today.

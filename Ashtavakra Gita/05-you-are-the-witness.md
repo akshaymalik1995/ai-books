@@ -29,8 +29,8 @@ So here is the idea for today:
 **You are the witness. You are the calm one who watches everything, and does
 not change.**
 
-This is who you really are. Not the body. Not the mind. The quiet witness
-behind them both.
+This is who you really are. You are not the body. You are not the mind. You
+are the quiet witness behind them both.
 
 That is enough for today. Sit with this one. It is the heart of the whole
 book.

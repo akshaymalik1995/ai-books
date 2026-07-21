@@ -9,8 +9,8 @@ comes. You get something you wanted. Then you lose something you liked.
 People come close. People go away. Nothing stays the same for long.
 
 Most people go up and down with all of this. When a good thing comes, they
-rise. When a bad thing comes, they fall. Up and down, up and down, all their
-life. There is no rest.
+rise. When a bad thing comes, they fall. They go up and down, up and down, all
+their life. There is no rest.
 
 But now you know something new. You are the witness. And the witness does not
 change. So watch what this means.

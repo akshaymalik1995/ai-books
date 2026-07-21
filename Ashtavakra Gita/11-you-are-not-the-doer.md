@@ -41,6 +41,6 @@ push. The doing happens. You watch. And a great weight falls away.
 
 That is enough for today.
 
-In the next lesson, we will take this into a hard, real case. When you put off
-something important, and blame yourself, and push yourself. We will see what
-"I am not the doer" looks like right there.
+In the next lesson, we will take this into a hard, real case. It is the case
+where you put off something important, and blame yourself, and push yourself.
+We will see what "I am not the doer" looks like right there.

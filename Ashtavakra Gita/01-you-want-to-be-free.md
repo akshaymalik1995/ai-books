@@ -11,7 +11,7 @@ So he asked the teacher one question. He asked, "How do I become free?"
 That is where this book starts. One man asking how to be free.
 
 I think you are here for a reason like his. Something in you wants to be free
-too. Free from worry. Free from fear. Free from the sad and heavy feeling
+too. You want to be free from worry, from fear, from the sad and heavy feeling
 that comes back again and again.
 
 This whole book is an answer to that one question. Nothing more.
