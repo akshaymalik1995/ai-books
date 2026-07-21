@@ -91,10 +91,28 @@ are softer, warmer, and they lead the reader by *asking* rather than telling.
 - **Be warm and spoken.** Natural contractions are welcome here ("you don't
   have to", "it doesn't mean").
 - **Do not end with a rule.** These lessons have no bold idea to memorise, and
-  no "That is enough for today." They end open and soft, often with a quiet
-  "Perhaps ..." — an invitation to keep looking, not a full stop.
+  no "That is enough for today." They end open and soft — an invitation to keep
+  looking, not a full stop.
 
-A rough flow for a real-life lesson:
+**Match the help to the struggle.**
+Not every lesson makes the same turn, and you must never force one turn onto
+all of them. These lessons give two kinds of help. Before writing, ask which
+one *this* struggle needs — and give only that.
+
+- **See who you are.** Sometimes the healing is to notice that the thought or
+  feeling is not you, and that the quiet awareness watching it is what you
+  truly are. This suits struggles that hurt because we take a passing feeling
+  *to be* ourselves: self-criticism, worry, anger, comparison, loneliness.
+  Grief, too, comes to rest here — the awareness that holds the sorrow is you.
+  These lessons may end with a quiet "Perhaps that is who you really are."
+- **How to meet it.** Sometimes the reader does not need the "who am I?"
+  question at all. They need a plain, wiser way to handle the thing. This suits
+  struggles like desire and putting things off. With desire, the real question
+  is not "who am I?" but "how do I deal with this pull?" Do not drag in "the
+  awareness is you" where it is not needed. Let the lesson end on the practical
+  seeing instead.
+
+A rough flow for a *see-who-you-are* lesson (only one of the two shapes):
 
 1. A question, and the everyday moment.
 2. The mind's voices, each on its own italic line.
@@ -106,6 +124,10 @@ A rough flow for a real-life lesson:
 8. An honest word — the feeling will return; you need not believe it, and
    need not fight it.
 9. A soft, open ending — "Perhaps that is who you really are."
+
+A *how-to-meet-it* lesson is shaped differently: it leads to a practical
+insight about how the thing works and how to hold it, and it needs no turn to
+"who you are" at all.
 
 ## The Verses
 
