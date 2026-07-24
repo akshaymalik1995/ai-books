@@ -1,7 +1,8 @@
 # 2. Work Without Stain
 
-> Doing your work in this world, wish to live a hundred years.
-> For you there is no other way. Done so, work does not stick to the one who does it.
+> Keep doing your work in this world, and wish to live a hundred years.
+> If you live this way, work does not stick to you.
+> There is no other way to be in the world and stay unstained.
 >
 > — Isha Upanishad, verse 2
 
