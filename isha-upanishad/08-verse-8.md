@@ -1,9 +1,9 @@
 # 8. Bright, Bodiless, Untouched
 
-> The Self is everywhere — bright, bodiless, without wound,
-> without sinews, pure, untouched by evil.
-> The seer, the wise one, self-existent,
-> it has set all things in their right places for endless years.
+> The Self is everywhere — bright, bodiless, whole and unwounded,
+> pure, untouched by evil.
+> It is the seer, the wise one, the self-existent,
+> and it has set all things in their right places for endless years.
 >
 > — Isha Upanishad, verse 8
 

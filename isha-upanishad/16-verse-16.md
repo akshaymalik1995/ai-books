@@ -2,7 +2,7 @@
 
 > O Sun, lone traveller of the sky, withdraw your rays, gather in your light.
 > Let me see your most gracious form.
-> The Person who dwells there — I am He.
+> The Person who dwells within you — I am He.
 >
 > — Isha Upanishad, verse 16
 

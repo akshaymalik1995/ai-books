@@ -1,8 +1,8 @@
 # 11. Both Together
 
 > One who knows knowledge and ignorance both together
-> crosses death through ignorance
-> and reaches immortality through knowledge.
+> crosses beyond death through ignorance — through work in the world —
+> and reaches immortality through knowledge of the Self.
 >
 > — Isha Upanishad, verse 11
 

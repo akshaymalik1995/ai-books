@@ -1,8 +1,8 @@
 # 7. What Sorrow, What Delusion
 
-> For the one who sees that all beings are the Self,
-> where is delusion, where is sorrow,
-> for that seer of oneness?
+> When a person sees that all beings are the Self,
+> what delusion can remain, what sorrow,
+> for one who sees this oneness?
 >
 > — Isha Upanishad, verse 7
 

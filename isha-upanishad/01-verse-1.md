@@ -1,6 +1,6 @@
 # 1. Everything Is Already His
 
-> All this — whatever moves in this moving world — is covered by the Lord.
+> The Lord fills all this — whatever lives and moves in this moving world.
 > Let go of it, and then enjoy it. Do not grab at anyone's wealth.
 >
 > — Isha Upanishad, verse 1

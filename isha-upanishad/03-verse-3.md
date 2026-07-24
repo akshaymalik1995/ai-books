@@ -1,6 +1,6 @@
 # 3. Killing the Self
 
-> Dark are those worlds, covered in blinding darkness.
+> There are sunless worlds, covered in blinding darkness.
 > Those who kill the Self go to them after death.
 >
 > — Isha Upanishad, verse 3
