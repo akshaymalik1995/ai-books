@@ -1,21 +1,23 @@
 # 17. At the Hour of Death
 
-> Let this breath return to the immortal air.
-> Let this body end in ashes.
-> Om. Remember, O mind, what has been done. Remember.
->
-> — Isha Upanishad, verse 17
+## The verse
 
-This verse is spoken at the edge of death, and it is completely calm.
+*"Let this breath return to the immortal air. Let this body end in ashes. Om. Remember, O mind, what has been done. Remember."*
 
-Breath goes back to air. Body goes back to ash. Everything borrowed is returned to its owner.
+## Explanation
 
-Nothing in that returning is a tragedy. It is a settling of accounts.
+The Upanishad now stands at the hour of death, and its tone is startlingly calm. The dying one gives everything back: the breath is returned to the cosmic air from which it was borrowed, the body is released to the fire and its ashes. Then, with the sacred syllable Om, one instruction is repeated twice: remember, O mind, remember — recall what has been done, the truth realized, the life lived toward it.
 
-Then one word is kept for the crossing: remember.
+## The deeper meaning
 
-Not regret, not fear, not bargaining — remember.
+For one who has absorbed the Upanishad's teaching, death is not a robbery but a settlement of accounts: what was lent is returned. Breath to air, body to ashes — and no tears in the transaction, because the Self was never either of them.
 
-What I remember at the end is what I practised remembering all along; the last thought is only the oldest habit.
+The repeated "remember" carries the weight of the verse. What we hold at the end is what we practiced through the years; the final thought is not chosen at the last minute but prepared by a lifetime. Hence the urgency hidden inside the calm: live now the remembrance you will need then.
 
-So this verse is not really about dying. It is instruction for today: practise the remembering now.
+## Central teaching
+
+At death the elements return to their sources, and what remains decisive is the mind's remembrance of the truth it lived by.
+
+## In one sentence
+
+The verse teaches the dying to return breath and body to nature and to hold fast to remembrance of the eternal.

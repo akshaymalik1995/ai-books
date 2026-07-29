@@ -1,22 +1,23 @@
 # 1. Everything Is Already His
 
-> The Lord fills all this — whatever lives and moves in this moving world.
-> Let go of it, and then enjoy it. Do not grab at anyone's wealth.
->
-> — Isha Upanishad, verse 1
+## The verse
 
-Whatever you can see, the Lord is already living inside it.
+*"The Lord fills all this — whatever lives and moves in this moving world. Let go of it, and then enjoy it. Do not grab at anyone's wealth."*
 
-This chair, this street, this body writing these words — none of it is empty.
+## Explanation
 
-If everything is His, then nothing is mine to lose.
+The Isha Upanishad opens with its entire teaching compressed into one verse. First comes the vision: everything in this changing world is filled and owned by the Lord — the one divine reality. Nothing actually belongs to us. Then comes the instruction that follows from this vision: let go, and *then* enjoy. Renunciation here is not the enemy of enjoyment but its condition. Finally comes the ethical consequence: do not grab at what belongs to another, for nothing belongs to anyone.
 
-What I cannot lose, I can finally enjoy.
+## The deeper meaning
 
-The fist cannot receive; only the open hand can.
+Our suffering comes largely from the word "mine." We clutch at people, possessions, and outcomes, and the clutching itself creates fear of loss. The verse offers a complete reversal: see everything as the Lord's, hold nothing, and suddenly everything can be enjoyed freely — the way we enjoy a sunset precisely because we do not own it.
 
-Grabbing is the belief that something here belongs to me.
+The guest in a house enjoys it more peacefully than the anxious owner. The Upanishad invites us to live in the whole world that way.
 
-Letting go is not giving things up — it is giving up the idea that they were ever mine.
+## Central teaching
 
-Then the whole world stays with me, and the fear of losing it goes.
+Everything is pervaded by the Lord; therefore renounce possession, enjoy what is given, and covet nothing.
+
+## In one sentence
+
+The verse teaches that the world can be truly enjoyed only when we stop trying to own it, because it is already filled by the Lord.

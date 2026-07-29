@@ -1,21 +1,23 @@
 # 10. Two Different Fruits
 
-> One fruit comes from knowledge, they say,
-> and another fruit from ignorance.
-> So we have heard from the wise who explained it to us.
->
-> — Isha Upanishad, verse 10
+## The verse
 
-Here "ignorance" means the world of action — work, ritual, effort, doing.
+*"One fruit comes from knowledge, they say, and another fruit from ignorance. So we have heard from the wise who explained it to us."*
 
-"Knowledge" means knowing the Self.
+## Explanation
 
-Each gives what it gives. Neither gives what the other gives.
+After the shock of the previous verse, this one restores balance. Knowledge and ignorance — here meaning the inner path of Self-knowledge and the outer path of action in the world — are not interchangeable, and they are not rivals. Each yields its own distinct fruit. The outer path produces its results in the world; the inner path produces realization. The verse rests its authority on the lineage of the wise who have explained this from ancient times.
 
-Action builds a life in the world. It cannot reveal what I am.
+## The deeper meaning
 
-Knowing the Self reveals what I am. It will not cook my dinner.
+Confusion arises when we demand from one path the fruit of the other. Action in the world, however skillful, cannot by itself produce Self-knowledge; and contemplation by itself does not put bread on the table or serve the community. Disappointment with spirituality often comes from this category mistake — expecting meditation to work like a career, or work to substitute for inwardness.
 
-Half my confusion has come from asking one to do the job of the other.
+Knowing that the two fruits are different is the first step toward the harmony the next verse will teach: needing both, we must learn what each is actually for.
 
-The wise do not rank the two here. They only say: know them apart.
+## Central teaching
+
+The outer path of action and the inner path of knowledge each bear a different fruit, and wisdom begins by not confusing the two.
+
+## In one sentence
+
+The verse teaches that action and Self-knowledge yield different fruits, each true to its own nature.

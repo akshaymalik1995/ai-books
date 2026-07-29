@@ -1,21 +1,23 @@
 # 14. Crossing and Arriving
 
-> One who knows the manifest and the unmanifest both together
-> crosses death through the manifest
-> and reaches immortality through the unmanifest.
->
-> — Isha Upanishad, verse 14
+## The verse
 
-The formed world is the boat. The formless is the shore.
+*"One who knows the manifest and the unmanifest both together crosses death through the manifest and reaches immortality through the unmanifest."*
 
-I cross by means of the world — this body, this work, this ordinary life is the crossing.
+## Explanation
 
-I arrive by means of the formless — what I reach was never made and cannot end.
+The resolution arrives, exactly parallel to verse eleven. The wise person holds the manifest and the unmanifest together, letting each do what only it can do. Through the manifest — the world of forms, honored and engaged — one crosses the realm of death safely. Through the unmanifest — the formless reality behind all forms — one reaches what no form can give: immortality.
 
-A person who burns the boat mid-river drowns. A person who never leaves the boat never lands.
+## The deeper meaning
 
-So I honour the world as the boat it is: I care for it, use it fully, and do not mistake it for home.
+This completes the Upanishad's great teaching of wholeness. Form is the bridge; the formless is the far shore. A bridge is not to be despised — without it there is no crossing. And the far shore is not optional — without it the bridge leads nowhere.
 
-And I keep the shore in view, so the rowing has a direction.
+In practice this means: honor the concrete — the body, the work, the loved faces, the sacred forms — as the real vehicle of the spirit; and remember always the formless awareness within and beyond them, as the destination the vehicle serves. Despise neither, absolutize neither. The whole of reality asks for the whole of our response.
 
-Held together like this, life itself becomes the crossing.
+## Central teaching
+
+The world of forms carries us across death, and the formless grants immortality — the complete path embraces both together.
+
+## In one sentence
+
+The verse teaches that the wise use the manifest to cross the mortal world and the unmanifest to arrive at the immortal.

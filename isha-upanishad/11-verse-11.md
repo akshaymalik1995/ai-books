@@ -1,21 +1,23 @@
 # 11. Both Together
 
-> One who knows knowledge and ignorance both together
-> crosses beyond death through ignorance — through work in the world —
-> and reaches immortality through knowledge of the Self.
->
-> — Isha Upanishad, verse 11
+## The verse
 
-The Upanishad refuses to let me choose one and drop the other.
+*"One who knows knowledge and ignorance both together crosses beyond death through ignorance — through work in the world — and reaches immortality through knowledge of the Self."*
 
-Through action — rightly done, unclaimed — I cross the daily deaths: laziness, chaos, a wasted life.
+## Explanation
 
-Through knowledge of the Self I reach what never dies at all.
+Now comes the resolution. The wise person does not choose between the outer life of action and the inner life of knowledge; they hold both together, each doing its proper work. Through engaged action in the world — here called "ignorance" because it deals with the changing, outer realm — one crosses beyond death's domain: life is sustained, duties fulfilled, the mind purified. Through knowledge of the Self, one attains what action never could: immortality.
 
-Action keeps the vessel clean. Knowledge fills it.
+## The deeper meaning
 
-A life of only action is a polished empty pot. A life of only concepts is water with nothing to hold it.
+This is the Isha Upanishad's signature teaching — its refusal of every either/or. Work without inner knowledge becomes bondage and burnout; knowledge without work becomes barren and proud, as verse nine warned. Together, they complete each other: action gives the knowledge hands, and knowledge gives the action light.
 
-So the path is not the cave and not the marketplace. It is both hands working while the heart knows.
+An ordinary life of family, work, and duty is not an obstacle to the highest realization. Lived with Self-knowledge, it is the very vehicle of it.
 
-This is the same secret as verse one: let go, and then enjoy. Live fully, and know fully.
+## Central teaching
+
+Action and Self-knowledge together form the complete path — action carries us through the mortal world, knowledge carries us beyond it.
+
+## In one sentence
+
+The verse teaches that the wise live action and knowledge together, crossing death by work and reaching immortality by knowing the Self.

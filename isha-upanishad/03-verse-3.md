@@ -1,20 +1,23 @@
 # 3. Killing the Self
 
-> There are sunless worlds, covered in blinding darkness.
-> Those who kill the Self go to them after death.
->
-> — Isha Upanishad, verse 3
+## The verse
 
-No one can actually kill the Self. It cannot be cut or burned.
+*"There are sunless worlds, covered in blinding darkness. Those who kill the Self go to them after death."*
 
-But I can live as if it were not there. That is what the verse calls killing it.
+## Explanation
 
-Every day spent grabbing, fearing, and claiming is a day the Self stays covered.
+This is the sternest verse of the Isha Upanishad. "Killing the Self" does not mean physical harm. It means living as though the Self did not exist — ignoring one's own deepest reality, spending an entire life on the surface without ever turning inward. Such a life, the Upanishad warns, leads into darkness: states of existence without light, because the inner light was never acknowledged.
 
-A covered lamp does not go out — the room just stays dark.
+## The deeper meaning
 
-The darkness the verse warns of is not a place far away. It is any life lived without looking within.
+The Self cannot actually be killed; it is deathless. What can be done is to smother it under total neglect — a lifetime of distraction in which the one who is aware is never once noticed. The Upanishad calls this self-destruction, because it destroys the very purpose for which a human life exists.
 
-I do not need to fear punishment. I need to fear only this: forgetting what I am.
+The "sunless worlds" begin here and now. A life lived in complete forgetfulness of the Self is already a darkened life, and death only continues the direction in which a person was already traveling.
 
-Remembering is the whole of the work.
+## Central teaching
+
+To ignore the Self throughout life is the deepest form of self-harm, and its natural result is darkness.
+
+## In one sentence
+
+The verse warns that those who live and die without ever turning toward their own Self go into darkness of their own making.

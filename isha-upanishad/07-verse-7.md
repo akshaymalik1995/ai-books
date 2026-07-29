@@ -1,21 +1,23 @@
 # 7. What Sorrow, What Delusion
 
-> When a person sees that all beings are the Self,
-> what delusion can remain, what sorrow,
-> for one who sees this oneness?
->
-> — Isha Upanishad, verse 7
+## The verse
 
-Sorrow always has the same shape: something I counted as mine is threatened or gone.
+*"When a person sees that all beings are the Self, what delusion can remain, what sorrow, for one who sees this oneness?"*
 
-Delusion always has the same root: I take myself to be small and separate.
+## Explanation
 
-The verse does not ask me to fight sorrow. It asks a question instead.
+This verse completes the thought of the previous one and states its final fruit. For the one who directly sees that all beings are the Self, the two great afflictions of human life — delusion and sorrow — lose their footing. The question form is deliberate: what delusion? what sorrow? As if to say — look for them in such a person, and you will not find them.
 
-When all beings are myself, what exactly can I lose?
+## The deeper meaning
 
-When nothing is separate, whom exactly do I fear?
+Delusion is essentially a case of mistaken identity: taking oneself to be a small, separate creature among threatening others. Sorrow grows out of that mistake — grief over what the separate self loses, fear of what it might lose next. When the seeing of oneness corrects the identity, both collapse together, the way a nightmare and its terror vanish at the moment of waking.
 
-Sorrow is not defeated. It simply finds no place to stand.
+The verse does not promise a life without pain. Pain belongs to the body and mind and will visit them. But sorrow — the suffering of a separate self clinging to what must pass — has no root left to grow from.
 
-One seeing — and the two oldest troubles of the mind go quiet together.
+## Central teaching
+
+Delusion and sorrow both live on the illusion of separateness, and the direct vision of oneness starves them at the root.
+
+## In one sentence
+
+The verse teaches that for one who truly sees all beings as the Self, delusion and sorrow become impossible.
