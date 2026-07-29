@@ -1,77 +1,92 @@
 # 1. The First Question
 
-> Who sends the mind out toward its objects?
-> Who commands the breath to move?
-> Who makes us speak these words?
-> What god drives the eye and the ear?
+**The Verse**
+
+> Who makes the mind think?
+> Who makes the breath move?
+> Who makes us speak?
+> What power is behind the eye and the ear?
 >
 > — Kena Upanishad, 1.1
 
-This whole Upanishad grows from one question, asked four ways.
+**Explanation**
 
-My mind runs to things all day. I never once asked who sends it.
+A student asks his teacher a question. The eye sees. The ear hears. The mind thinks. But who is running all of this? The eye does not switch itself on. So the student asks: what is behind it all?
 
-Breath moves whether I attend to it or not. Something moves it.
+**The deeper meaning**
 
-I always looked at what the eye shows me. This question turns me around to look at what is looking.
+The question is about you. Right now, your eyes are reading these words. But you are not doing the seeing — it just happens. You never told your heart to beat. You never told your mind to think. Something deeper is at work, and you have never stopped to ask what it is.
 
-Kena means "by whom?" — and the asking itself is the beginning of the path.
+**Central teaching**
 
-A machine never asks who switched it on. The moment I truly ask, I have already stepped out of the machine.
+We use the eye, the ear, the mind all day. But we never ask who is using them. This one question is the start of all wisdom.
 
-I let the question stand today, unanswered, like a door left open.
+**In one sentence**
+
+Before you look at the world, ask who is looking.
 
 ---
 
 # 2. The Ear of the Ear
 
+**The Verse**
+
 > It is the ear of the ear, the mind of the mind,
 > the speech of speech, the breath of the breath, the eye of the eye.
-> The wise let go of the lesser self they took themselves to be,
+> The wise let go of the small self they took themselves to be,
 > and leaving this world, become immortal.
 >
 > — Kena Upanishad, 1.2
 
-Here is the answer, given as a riddle: behind each instrument stands its life.
+**Explanation**
 
-The ear is a mechanism. Something hears through it — that is the ear of the ear.
+The teacher answers the question. Behind the ear there is something that makes hearing possible. Behind the mind there is something that makes thinking possible. It is not another organ. It is the one power that all the organs run on. The wise stop thinking "I am this body and mind" and know that power as themselves.
 
-The mind is a mechanism too. Something knows the mind's thoughts — that is the mind of the mind.
+**The deeper meaning**
 
-I have spent my life as the instruments: I said *I* see, *I* think, *I* speak.
+You have always taken yourself to be the instruments — the eyes, the thoughts, the voice. But instruments are tools. A microphone does not speak; someone speaks through it. Your mind does not know; something knows through it. That something is you.
 
-The wise make one correction: I am not the instruments; I am what works through them.
+**Central teaching**
 
-Nothing else changes. The seeing, thinking, and breathing go on.
+There are two things here: the instruments, and the power behind them. All fear comes from thinking you are the instruments, because instruments wear out. Freedom begins when you know you are the power.
 
-Only the address changes — and with the old address goes the old dying.
+**In one sentence**
+
+You are not the ear, the eye, or the mind — you are the life that works through them.
 
 ---
 
 # 3. Where Words Turn Back
 
+**The Verse**
+
 > The eye does not go there. Speech does not go there, nor the mind.
-> We do not know it as an object; we do not see how one could teach it.
+> It is not a thing we can know like other things,
+> and we do not see how one could teach it.
 >
 > — Kena Upanishad, 1.3
 
-Every tool I have was built for catching objects.
+**Explanation**
 
-The eye catches shapes. Words catch ideas. The mind catches thoughts.
+Now comes a warning. Do not expect to see this power, describe it, or think it out. The eye cannot see it. Words cannot reach it. The mind cannot picture it. It is not one more thing in the world, so it cannot be studied like a thing.
 
-But the Self is not one more object lying among the others.
+**The deeper meaning**
 
-The eye cannot turn and see its own seeing, just as a knife cannot cut its own edge.
+Everything you have ever known, you knew as an object — something in front of you. But this is not in front of you. It is you. The eye can see everything except itself. That is why the search feels so strange: you are looking for the one who is looking.
 
-So when the teachers say "we do not know it," they are not confessing failure.
+**Central teaching**
 
-They are being precise: it cannot be known the way a thing is known, because it is what does the knowing.
+The Self cannot be found the way things are found, because it is not a thing. When the teachers say "we do not know it," they are not failing — they are being exact.
 
-My search changes today: I stop hunting for a new object, and grow quiet toward the hunter.
+**In one sentence**
+
+You cannot see the seer.
 
 ---
 
 # 4. Other Than the Known
+
+**The Verse**
 
 > It is other than the known,
 > and it is beyond the unknown as well.
@@ -79,23 +94,27 @@ My search changes today: I stop hunting for a new object, and grow quiet toward 
 >
 > — Kena Upanishad, 1.4
 
-Everything in my world falls into two boxes: things I know, and things I do not know yet.
+**Explanation**
 
-The unknown things I expect to know someday, the same way I know the rest.
+The teacher places it beyond both boxes. It is not among the things we already know. And it is not an unknown thing either — not something waiting to be discovered one day, like a new planet. Known and unknown are both labels for objects. This is not an object at all.
 
-This verse breaks both boxes.
+**The deeper meaning**
 
-The Self is not among the known — it is never an object in front of me.
+The mind sorts everything into two piles: what I know, and what I don't know yet. Your whole education lives in those two piles. But the one who does the sorting is in neither pile. You will never find yourself in what you know, and never in what you are still to learn.
 
-And it is not among the unknown either — because nothing is closer or more constantly present.
+**Central teaching**
 
-I know it the way the eye knows light: never as a thing seen, always as the seeing itself.
+Truth is not information. No amount of learning brings you closer to it, because it is not on the side of things learned — it is on the side of the learner.
 
-Strange comfort in this: what I seek cannot be far, because it is not hiding in either box.
+**In one sentence**
+
+You will never learn about it, because it is the one who learns.
 
 ---
 
 # 5. What Speech Cannot Say
+
+**The Verse**
 
 > That which speech cannot express,
 > but by which speech itself is expressed —
@@ -104,23 +123,27 @@ Strange comfort in this: what I seek cannot be far, because it is not hiding in 
 >
 > — Kena Upanishad, 1.5
 
-Now come five verses, one for each instrument, each with the same sword in it.
+**Explanation**
 
-Words can describe everything except the power that speaks them.
+Words cannot describe Brahman, because Brahman is the power that makes words possible. Then comes a bold line: whatever people worship "here" — any form, any image, any idea of God placed in front of them — that is not it. A thing in front of you cannot be the power behind you.
 
-Every prayer I have said was made of words — and so every prayer fell short of what makes prayer possible.
+**The deeper meaning**
 
-"Not this that people worship here": the verse dares to say that most worship aims too low.
+Anything you can name is held inside your mind, so it is smaller than you. Any God you can picture is a picture — made by the mind, powered by the very reality you are trying to find. The Upanishad is not against worship. It is against stopping at the picture.
 
-Whatever I can name, praise, or picture is already not It — because naming needs something prior that names.
+**Central teaching**
 
-I am not asked to stop speaking or praying.
+Do not confuse the described with the describer. God is not the greatest object in the world; God is what makes seeing any object possible.
 
-I am asked to remember, mid-sentence, the silent one the sentence rides on.
+**In one sentence**
+
+What you cannot put into words, but which lets you speak at all — that is God.
 
 ---
 
 # 6. What the Mind Cannot Think
+
+**The Verse**
 
 > That which the mind cannot think,
 > but by which the mind itself thinks —
@@ -129,23 +152,27 @@ I am asked to remember, mid-sentence, the silent one the sentence rides on.
 >
 > — Kena Upanishad, 1.6
 
-I have tried to think my way to the Self. This verse tells me why it never worked.
+**Explanation**
 
-A thought about Brahman is still just a thought — one more object floating in awareness.
+The same key now turns in another lock. The mind cannot think Brahman, because Brahman is what makes thinking happen. Every thought — including every thought about God — is lit up by it, the way every scene in a film is lit up by the projector lamp. The lamp itself never appears on the screen.
 
-The awareness it floats in is what I was trying to think about.
+**The deeper meaning**
 
-The net cannot catch the fisherman.
+You have thought about truth many times. Each time, you got a thought — and a thought is just another object appearing in you. Thinking will never cross over to the thinker. But notice: something is aware of every thought as it comes and goes. That quiet awareness is closer to you than any thought.
 
-So the highest idea of God I will ever have is still an idea, and still not It.
+**Central teaching**
 
-This is not a defeat for the mind; it is the mind's finest hour — the moment it sees its own edge and bows.
+Stop trying to grasp it with thought, and start noticing what is already aware of thought. The first is impossible. The second is happening right now.
 
-Where thinking stops honestly, what was always here stands unhidden.
+**In one sentence**
+
+You cannot think it, because it is what thinks in you.
 
 ---
 
 # 7. What the Eye Cannot See
+
+**The Verse**
 
 > That which the eye cannot see,
 > but by which the eye itself sees —
@@ -154,23 +181,27 @@ Where thinking stops honestly, what was always here stands unhidden.
 >
 > — Kena Upanishad, 1.7
 
-All my life I have believed the eye's report: what it shows me is real, what it cannot show me is doubtful.
+**Explanation**
 
-Yet the one thing the eye can never show me is the seeing itself.
+The eye is an instrument, like a camera. A camera photographs everything except the photographer. Whatever appears in front of the eye — however grand, however holy — is only a sight. Brahman is not a sight. It is the seeing power itself.
 
-Seeing has no colour, no shape, no distance — nothing an eye could catch.
+**The deeper meaning**
 
-Still, it is the most certain thing I know. Every sight proves it; no sight contains it.
+All your life you have trusted the eye: I will believe it when I see it. But the most certain thing in your life has never been seen — the awareness in which every sight appears. Faces change, scenes change, colors change. The seeing has never changed. You have never been shown it, yet you have never been without it.
 
-People bow to what shines — the sun, the image, the holy form.
+**Central teaching**
 
-The verse quietly asks: what is it in you that the shining shines for?
+Do not wait for a vision of truth. Turn your attention from what is seen to the fact of seeing — that light was never absent.
 
-Today I look at anything at all, and remember the invisible one this visible world is appearing to.
+**In one sentence**
+
+The eye has never seen it, yet without it the eye has never seen anything.
 
 ---
 
 # 8. What the Ear Cannot Hear
+
+**The Verse**
 
 > That which the ear cannot hear,
 > but by which the ear itself hears —
@@ -179,23 +210,27 @@ Today I look at anything at all, and remember the invisible one this visible wor
 >
 > — Kena Upanishad, 1.8
 
-Every sound arrives inside something soundless.
+**Explanation**
 
-I notice sounds all day; I have never once noticed what receives them.
+Sounds come and go — words, music, noise. The ear catches them all. But the ear will never catch the power that makes hearing happen. Brahman is not a sound among sounds, not even the most sacred one. It is what hears.
 
-The receiving has no volume. It never gets louder or softer. It was there before the sound and remains after.
+**The deeper meaning**
 
-Even sacred sound — the chant, the bell, the holy name — is a guest in that silent hall.
+Notice something simple: every sound you have ever heard arrived inside a listening that was already there. The sounds kept changing. The listening never did. And the listening is not the ear — the ear is just flesh. Something aware is using the ear. You have been listening your whole life and never once asked what this listening is.
 
-The chant is not worthless; it points home. But the hall is greater than the guest.
+**Central teaching**
 
-Tonight, when a sound ends — a fan switched off, a voice gone quiet — I catch the silence it ends into.
+Truth is not a message you will one day hear. It is the hearing itself — present in every sound, and present between sounds too.
 
-That silence is the nearest doorway the ear will ever show me.
+**In one sentence**
+
+It is not a sound you will hear; it is the silence that is listening.
 
 ---
 
 # 9. The Life of the Breath
+
+**The Verse**
 
 > That which breath cannot keep alive,
 > but by which breath itself is drawn —
@@ -204,23 +239,27 @@ That silence is the nearest doorway the ear will ever show me.
 >
 > — Kena Upanishad, 1.9
 
-The five verses end with the most intimate instrument of all.
+**Explanation**
 
-I call breath my life. But breath is a movement — and no movement moves itself.
+We say breath is life. The Upanishad goes one step deeper: what moves the breath? Breath is just air going in and out, and air does not decide to flow. Something is drawing every breath. That something is not kept alive by the breath — the breath is kept moving by it.
 
-Something breathes me. It has been breathing me every night while I was not there to help.
+**The deeper meaning**
 
-I did not start this breath this morning, and I will not be consulted when it stops.
+You have taken millions of breaths, and you were not in charge of any of them. They came while you slept, while you worked, while you forgot. Life is not something you are doing. Life is something being done through you. Every second, you are being carried by a power you never thank.
 
-That should frighten me, but the verse means it as the deepest reassurance.
+**Central teaching**
 
-What I truly am is not the breath that can stop — it is the life the breath borrows from.
+This completes the first chapter's answer. Eye, ear, speech, mind, breath — all five run on one power. That power is Brahman, and it is what you truly are.
 
-The lender does not die when the loan is returned.
+**In one sentence**
+
+You are not breathing; you are being breathed.
 
 ---
 
 # 10. If You Think You Know
+
+**The Verse**
 
 > The teacher says: if you think "I know Brahman well,"
 > then you know only a little of it —
@@ -229,23 +268,27 @@ The lender does not die when the loan is returned.
 >
 > — Kena Upanishad, 2.1
 
-The student has heard the whole teaching of the first section. Now comes the test.
+**Explanation**
 
-The moment I say "I have understood," I have turned the boundless into a package.
+The student has heard the whole teaching of the first chapter. Now the teacher tests him. If you walk away thinking "I have understood," you have understood only a little. Whatever you grasped is a form — an idea in your head. And Brahman is not an idea. So the teacher gives one instruction: keep inquiring.
 
-A package is small enough to carry — that is exactly what is wrong with it.
+**The deeper meaning**
 
-Whatever I understood is a form: a form in my mind, a form in my ideas of God. Forms are little.
+This happens to every reader of every spiritual book. A moment comes when you feel "now I get it." That feeling is the trap. The moment you say "got it," you have closed your hand around a concept — and the living truth is not in your hand.
 
-The teacher does not scold. He gives the kindest possible instruction: keep inquiring.
+**Central teaching**
 
-Understanding that closes is a wall. Inquiry that stays open is a window.
+Understanding that closes is a wall. Inquiry that stays open is a window. Be most careful on the days you feel sure.
 
-I keep the window open, especially on the days I feel sure.
+**In one sentence**
+
+The feeling of "I know it" is the surest sign that you don't.
 
 ---
 
 # 11. The Honest Answer
+
+**The Verse**
 
 > The student replies: I do not say "I know it well."
 > Nor do I say "I do not know it."
@@ -255,23 +298,27 @@ I keep the window open, especially on the days I feel sure.
 >
 > — Kena Upanishad, 2.2
 
-The student has passed the test, and this answer is the proof.
+**Explanation**
 
-"I know it well" would be false — the Self is not a thing to be grasped.
+The student passes the test. He refuses both easy answers. "I know it well" would be false, because the Self is not a thing that can be grasped. "I do not know it" would also be false, because nothing is more directly present. The truth lies between the two.
 
-"I do not know it" would be equally false — nothing is more directly present.
+**The deeper meaning**
 
-Do I know my own existence? I cannot describe it, weigh it, or show it to anyone.
+Take your own existence. Can you describe it? No. Can you prove it to someone? No. Have you ever doubted it, even for one second? Never. That is the kind of knowing this is — completely certain, without ever being an object. You know Brahman the same way you know that you exist.
 
-Yet I have never doubted it for one second of my life.
+**Central teaching**
 
-That is the kind of knowing this is: certain without being an object, closer than every fact.
+There are two false statements: "I know it" and "I don't know it." Between them runs a narrow path, and the honest walk it.
 
-Between the two false statements runs a narrow path, and the honest walk it.
+**In one sentence**
+
+I cannot know it as a thing, and I can never miss it as myself.
 
 ---
 
 # 12. Known to the Humble
+
+**The Verse**
 
 > It is truly known to the one who makes no claim of knowing it.
 > The one who claims to know it does not know it at all.
@@ -280,23 +327,27 @@ Between the two false statements runs a narrow path, and the honest walk it.
 >
 > — Kena Upanishad, 2.3
 
-This is the most famous knot in the Kena, and it unties simply.
+**Explanation**
 
-The claim "I know it" always comes from the small self — and the small self is precisely what blocks the view.
+This is the most famous riddle in the Kena, and it opens simply. The claim "I know it" always comes from the ego — and the ego is exactly what blocks the view. So the louder the claim, the thicker the wall. The one who has truly seen makes no claim, because seeing dissolves the claimer.
 
-So the louder the claim, the thicker the wall.
+**The deeper meaning**
 
-The one who has truly seen has also seen this: there is no separate "I" left over to collect the achievement.
+This gives you a simple test for your own progress. Is your understanding making you quieter, or making you more certain? Quieter means the road is good. Certain means turn around. Real knowing arrives with empty hands.
 
-Real knowing arrives with empty hands.
+**Central teaching**
 
-I can test myself with this verse anytime: is my understanding making me quieter, or making me certain?
+Truth and pride cannot stand in the same place. It is not that the humble are rewarded — it is that humility is the absence of the one thing that was blocking the view.
 
-Quieter means the road is good. Certain means turn around.
+**In one sentence**
+
+It reveals itself to those who stop claiming it.
 
 ---
 
 # 13. In Every Waking Moment
+
+**The Verse**
 
 > It is truly known when it is known as the witness
 > in every state of the mind —
@@ -306,23 +357,27 @@ Quieter means the road is good. Certain means turn around.
 >
 > — Kena Upanishad, 2.4
 
-Where, then, is the Self actually found? The verse answers: in every single moment of awareness.
+**Explanation**
 
-Not in a special state. Not only in meditation. In this thought, and the next, and the next.
+Where, then, is the Self actually found? The verse answers: in every single moment of awareness. Not in a special state. Not only in meditation. Every thought rises, shines for a moment, and dies. Something watches every one of them and does not die with them. Knowing the Self means catching that constant watcher — not once, but as a way of living.
 
-Each thought rises, shines for a moment, and dies. Something watches every one of them and does not die with them.
+**The deeper meaning**
 
-Knowing the Self is catching that constant watcher — not once, but as a way of living.
+You do not need a new experience. You need to notice what is already inside every experience you have. Joy comes — something watches it. Sadness comes — the same something watches it. The moods change; the watcher never does. That watcher is the deathless in you.
 
-And notice what the verse promises first: strength.
+**Central teaching**
 
-The person who rests in what cannot be damaged stops flinching at life.
+Notice what the verse promises first: strength. The one who rests in what cannot be damaged stops flinching at life. Strength first, immortality after.
 
-Strength first, deathlessness after — the order itself is a teaching.
+**In one sentence**
+
+Catch the silent watcher in every moment, and you have found what does not die.
 
 ---
 
 # 14. Here, in This Life
+
+**The Verse**
 
 > If one comes to know it here, in this life, life has found its truth.
 > If one does not know it here, the loss is great.
@@ -331,23 +386,27 @@ Strength first, deathlessness after — the order itself is a teaching.
 >
 > — Kena Upanishad, 2.5
 
-The second section ends by removing my favourite escape: someday.
+**Explanation**
 
-Not in another world, not after death, not in a better birth. Here.
+The second chapter ends with urgency. This knowing is not for another world, or after death, or a better lifetime. Here. This body, this ordinary life, is the whole opportunity. The verse does not threaten punishment. It states a plain fact: to live and miss this is simply the greatest of losses.
 
-This body, this ordinary week, is the whole opportunity.
+**The deeper meaning**
 
-The verse does not threaten punishment. It states a plain accounting: to live and miss this is simply the greatest of losses — like carrying a treasure through a market and selling it as scrap.
+We all keep a quiet "someday" for the deepest things — someday I will sit with these questions, when life is less busy. The verse removes the someday. And it gives the practice in the same breath: see the Self in every being. Every face you meet today is another window with the same light behind it.
 
-And the practice is given in the same breath: see the Self in every being.
+**Central teaching**
 
-Every face I meet today is another window with the same light in it.
+The world is not a distraction from the search. Looked at rightly, the world is the search — every being you see is the Self, seen from outside.
 
-Looked at this way, the world stops being a distraction from the search. It becomes the search.
+**In one sentence**
+
+This life is the chance; do not miss it.
 
 ---
 
 # 15. Whose Victory?
+
+**The Verse**
 
 > Brahman once won a victory for the gods.
 > But the gods took the glory of that victory for themselves.
@@ -355,23 +414,33 @@ Looked at this way, the world stops being a distraction from the search. It beco
 >
 > — Kena Upanishad, 3.1
 
-Now the Upanishad stops arguing and tells a story.
+**Explanation**
 
-The gods had just won a great battle. The winning power was Brahman's; the credit-taking was theirs.
+Now the Upanishad stops explaining and tells a story. The gods had just won a great battle against the demons. But the power behind their victory was Brahman's — the gods were only instruments. Instead of seeing this, they became proud. They believed the success belonged to them.
 
-I know this move from the inside. Health returns, work succeeds, praise arrives — and something in me quietly signs its own name on the gift.
+**The deeper meaning**
 
-"I did this" is the oldest forgery in the world.
+The story is not about gods. It is about us. Whenever we think —
 
-The gods here are my own faculties: fire of intellect, wind of breath, king of the mind. All of them run on borrowed power, and all of them forget it.
+- "I succeeded because I am brilliant."
+- "I achieved this entirely on my own."
+- "My talent made this happen."
 
-Nothing has gone wrong yet in the story — there is only success and pride.
+— we are making the same mistake as the gods. Our intelligence, strength, and opportunities all arise from something deeper than the ego that signs its name on them.
 
-That is exactly the moment truth chooses to appear.
+**Central teaching**
+
+Two views of the same success. Truth: all power and ability ultimately come from Brahman. Ignorance: the ego claims ownership and says "I did it."
+
+**In one sentence**
+
+Whenever the ego claims a victory, it forgets the deeper power that made the victory possible.
 
 ---
 
 # 16. The Strange Spirit
+
+**The Verse**
 
 > Brahman saw their pride,
 > and appeared before them as a strange spirit.
@@ -379,23 +448,27 @@ That is exactly the moment truth chooses to appear.
 >
 > — Kena Upanishad, 3.2
 
-The truth did not send a punishment. It simply showed up.
+**Explanation**
 
-But to eyes swollen with "ours," the most familiar thing in existence looked like a stranger.
+Brahman does not punish the proud gods. It simply appears before them — as a strange spirit they cannot recognize. Here is the quiet joke of the story: the gods cannot recognize the very power they are made of. Their pride has made the most familiar thing in existence look like a stranger.
 
-This is the quiet joke of the story: the gods could not recognize the very power they were made of.
+**The deeper meaning**
 
-The same happens in me. The source of every ability stands in plain view — as awareness itself — and I walk past it daily, calling it nothing in particular.
+The same thing happens in us. The source of every ability stands in plain view — as our own awareness — and we walk past it daily, calling it nothing in particular. Pride only has eyes for what it can own, and this cannot be owned. That is why it looks strange.
 
-What makes it look strange is not distance. It is my pride, which only has eyes for what it can own.
+**Central teaching**
 
-The unclaimable always looks alien to a claimer.
+Truth does not stay away from the proud. It comes near — but pride cannot recognize it. The problem is never distance; it is the "mine" in our eyes.
 
-Yet notice: it appeared. Even to the proud, it comes near. The story is already full of grace.
+**In one sentence**
+
+When pride grows, truth stands right in front of us — unrecognized.
 
 ---
 
 # 17. Sending Fire
+
+**The Verse**
 
 > The gods said to Agni, the god of fire:
 > "Find out for us what this strange spirit is."
@@ -403,23 +476,27 @@ Yet notice: it appeared. Even to the proud, it comes near. The story is already 
 >
 > — Kena Upanishad, 3.3
 
-Faced with a mystery, the gods do what I do: they send their sharpest power to interrogate it.
+**Explanation**
 
-Agni is fire — in me, the blaze of intellect, the one who illumines and consumes.
+Faced with something they cannot recognize, the gods send their sharpest power to investigate: Agni, the god of fire. Fire is the one who lights things up and burns through them. He runs at the mystery, confident he will crack it.
 
-When something I cannot explain enters my life, my first response is never to bow. It is to analyse.
+**The deeper meaning**
 
-*Let me figure out what this is.* That is Agni running.
+In us, fire is the intellect — the power that analyzes and figures things out. When something we cannot explain enters our life, our first response is never to bow. It is to analyze. "Let me work out what this is." That is Agni running. There is nothing wrong in the running; the intellect is doing its honest job. But watch the posture: the mystery is treated as one more object to be cracked open.
 
-There is nothing evil in the running; the intellect is doing its honest job.
+**Central teaching**
 
-But watch the posture: the mystery is treated as one more object to be cracked open.
+The first chapter already warned us: the mind cannot think what the mind thinks by. The story is about to show the same truth in action.
 
-The first section already warned where this ends — the mind cannot think what the mind thinks by. The story will now show it.
+**In one sentence**
+
+Faced with a mystery, our first move is to send the intellect to size it up.
 
 ---
 
 # 18. The Knower of All Things
+
+**The Verse**
 
 > The spirit asked him: "Who are you?"
 > He answered: "I am Agni, the fire.
@@ -427,23 +504,27 @@ The first section already warned where this ends — the mind cannot think what 
 >
 > — Kena Upanishad, 3.4
 
-The mystery speaks first, and asks the only question that matters in this whole Upanishad: who are you?
+**Explanation**
 
-Given one chance to answer, Agni recites his résumé.
+The mystery speaks first, and asks the deepest question in this whole Upanishad: who are you? Given one chance to answer, Agni recites his résumé — a name, a title, a claim: knower of all things.
 
-A name, a title, a claim: knower of all things.
+**The deeper meaning**
 
-I answer the same way. Asked who I am, I give a profession, a family role, a list of things I know.
+We answer the same way. Asked who we are, we give a profession, a family role, a list of achievements. But every item on that list is something we *have* — none of it is what we *are*. The question "who are you?" was an open door. The proud answer closed it.
 
-Every item on that list is something I have — none of it is what I am.
+**Central teaching**
 
-The question "who are you?" was an open door; the proud answer closed it.
+An identity built out of titles is about to be tested. The Self stands face to face with us all our lives, quietly asking who we are — and we keep handing it our card.
 
-Hold this scene: the Self, face to face, politely asking me who I am — and me, handing it my card.
+**In one sentence**
+
+Asked "who are you?", the ego hands over its business card.
 
 ---
 
 # 19. What Power Is in You?
+
+**The Verse**
 
 > The spirit asked: "What power is in you?"
 > Agni said: "I can burn all this —
@@ -451,23 +532,27 @@ Hold this scene: the Self, face to face, politely asking me who I am — and me,
 >
 > — Kena Upanishad, 3.5
 
-The second question is as gentle as the first: what can you do?
+**Explanation**
 
-And again the answer is total: everything. I can burn everything.
+The spirit asks a second gentle question: what can you do? And again the answer is total — everything. I can burn everything on earth. The spirit does not argue with the boast. It is about to do something much kinder and much more devastating: give the boast one small test.
 
-Power always talks like this. It defines itself by what it can do to things, and it rounds itself up to "all."
+**The deeper meaning**
 
-I hear this voice in myself on my good days. Capable, confident, slightly drunk on competence.
+Power always talks like this. It defines itself by what it can do, and it rounds itself up to "all." We hear this voice in ourselves on our good days — capable, confident, slightly drunk on competence: "there is nothing I couldn't handle."
 
-*There is nothing I couldn't handle.*
+**Central teaching**
 
-The spirit does not argue with the boast. Arguing would only feed it.
+The ego has two answers to "who are you?": its titles, and its powers. Both are borrowed, and the story is about to prove it.
 
-It is about to do something far kinder and far more devastating: give the boast one small test.
+**In one sentence**
+
+The ego answers "who are you?" with "look what I can do."
 
 ---
 
 # 20. A Blade of Grass
+
+**The Verse**
 
 > The spirit placed a blade of grass before him and said: "Burn this."
 > Agni rushed at it with all his speed, and could not burn it.
@@ -476,23 +561,27 @@ It is about to do something far kinder and far more devastating: give the boast 
 >
 > — Kena Upanishad, 3.6
 
-Not a mountain. Not an ocean. A blade of grass.
+**Explanation**
 
-The one who claimed he could burn everything failed at the smallest thing on earth — because this time, the power behind his power withheld itself.
+Not a mountain. Not an ocean. A blade of grass. The god who claimed he could burn everything fails at the smallest thing on earth — because this time, the power behind his power holds itself back. Fire never owned its burning. It was always lent, moment by moment.
 
-Fire never owned its burning. It was always lent, moment by moment.
+**The deeper meaning**
 
-So is my thinking. So is my talent. So is the strength of my hands.
+So it is with our thinking, our talent, the strength of our hands. All of it runs on borrowed power. Withdraw the loan for one moment, and the greatest expert cannot manage the simplest task. We have all had such days; we called them bad luck.
 
-One withheld moment and the greatest expert cannot manage the simplest task. I have had such days; I called them bad luck.
+**Central teaching**
 
-Agni's report is beautifully honest: I could not find out.
+Agni's report is honest: "I could not find out." The intellect coming home with empty hands is not the end of the search. It is the first true step of it.
 
-The intellect returning home with empty hands — that is not the end of the search. It is the first true step of it.
+**In one sentence**
+
+Without the power behind it, fire cannot burn even a blade of grass.
 
 ---
 
 # 21. Sending Wind
+
+**The Verse**
 
 > Then the gods said to Vayu, the god of wind:
 > "Find out for us what this strange spirit is."
@@ -500,23 +589,27 @@ The intellect returning home with empty hands — that is not the end of the sea
 >
 > — Kena Upanishad, 3.7
 
-Fire failed, so the gods send wind. This is my mind's favourite trick: change the tool, keep the approach.
+**Explanation**
 
-The intellect failed to grasp the mystery — very well, let effort try. Let willpower try. Let a new method, a new book, a new teacher try.
+Fire failed, so the gods send wind. A new tool, but the same approach. Nobody in the story questions the real mistake — the assumption that the spirit is a thing that can be found out. So every new attempt carries the old error inside it.
 
-Notice what nobody in the story questions: the assumption that the spirit is a thing to be found out.
+**The deeper meaning**
 
-Every new attempt carries the old error inside it, unexamined.
+This is the mind's favorite trick. When cleverness fails, we try effort. When effort fails, we try a new method, a new book, a new teacher. We keep replacing the instrument and calling it progress — while the approach, the real problem, stays untouched.
 
-I do this for years at a time — replacing instruments and calling it progress.
+**Central teaching**
 
-The verse holds no scorn for Vayu; each power must be exhausted honestly before I stop trusting powers.
+Each power must fail honestly before we stop putting our faith in powers. The story lets every instrument have its turn, so that nothing is left to hide behind.
 
-But the reader is allowed a small smile: we already know how this run ends.
+**In one sentence**
+
+When one power fails, the ego does not question itself — it just sends another power.
 
 ---
 
 # 22. I Move Through the Sky
+
+**The Verse**
 
 > The spirit asked him: "Who are you?"
 > He answered: "I am Vayu, the wind.
@@ -524,23 +617,27 @@ But the reader is allowed a small smile: we already know how this run ends.
 >
 > — Kena Upanishad, 3.8
 
-The same question, and the same kind of answer: a name and a range.
+**Explanation**
 
-Where fire said "I know," wind says "I move." Where the intellect boasted of understanding, energy boasts of reach.
+The same question, and the same kind of answer: a name and a claim. Where fire said "I know all," wind says "I move through all." Where the intellect boasted of understanding, energy boasts of reach.
 
-I am never everywhere, says this voice in me, but I could be — busy, fast, in motion, covering ground.
+**The deeper meaning**
 
-Restlessness has its own pride, just as cleverness does.
+Restlessness has its own pride, just as cleverness does. "I am busy, I am fast, I am everywhere, I cover everything" — that is Vayu's voice in us. And notice what both gods miss: face to face with the source of all knowing and all movement, neither one thinks to ask the question back — *and who are you?*
 
-Both answers share one blindness: neither god asks the question back.
+**Central teaching**
 
-Face to face with the source of all movement and all knowing, neither thinks to say — *and who are you?*
+Pride is not only claiming too much. It is losing curiosity about anything that is not oneself.
 
-Pride is not just claiming too much. It is losing curiosity about anything that is not oneself.
+**In one sentence**
+
+Same pride, new face — the ego always has another identity ready.
 
 ---
 
 # 23. I Can Carry It All
+
+**The Verse**
 
 > The spirit asked: "What power is in you?"
 > Vayu said: "I can carry away all this —
@@ -548,23 +645,27 @@ Pride is not just claiming too much. It is losing curiosity about anything that 
 >
 > — Kena Upanishad, 3.9
 
-Again the boast rounds up to "all," as boasts do.
+**Explanation**
 
-Wind believes the whole earth is portable, given enough of himself.
+Again the boast rounds up to "all." Wind believes the whole earth can be carried, given enough of himself. This is the creed of pure effort: anything can be lifted if I push hard enough, sleep less, try again.
 
-This is the creed of pure effort: anything can be lifted if I push hard enough, sleep less, try again.
+**The deeper meaning**
 
-Effort has carried much in my life; I owe it real gratitude.
+Effort has carried much in our lives, and it deserves real gratitude. But effort, like fire, runs on borrowed current — and has quietly forgotten the lender. The strongest muscle in the world cannot lift its own strength.
 
-But effort, like fire, runs on borrowed current, and has quietly forgotten the lender.
+**Central teaching**
 
-The strongest muscle in the world cannot lift its own strength.
+The test is being prepared again. And notice the spirit itself: it never argues, never raises its voice. Truth does not debate the ego; it simply lets the ego meet its limit.
 
-The little test is being prepared again — and the reader already loves this spirit, who never once raises its voice.
+**In one sentence**
+
+Effort believes it can carry everything — except the question of where effort comes from.
 
 ---
 
 # 24. The Grass Does Not Move
+
+**The Verse**
 
 > The spirit placed a blade of grass before him and said: "Lift this."
 > Vayu rushed at it with all his speed, and could not move it.
@@ -573,23 +674,27 @@ The little test is being prepared again — and the reader already loves this sp
 >
 > — Kena Upanishad, 3.10
 
-The same blade of grass. The same total failure.
+**Explanation**
 
-The lesson did not change, because the mistake did not change — only the talent attempting it.
+The same blade of grass. The same total failure. The lesson does not change, because the mistake has not changed — only the talent attempting it.
 
-This repetition is the mercy of the story. Life gives me the same small unbudging blade again and again, dressed as different problems.
+**The deeper meaning**
 
-The situation that will not yield to cleverness, and then will not yield to force.
+Life gives us the same small unbudging blade of grass again and again, dressed as different problems: the situation that will not yield to cleverness, and then will not yield to force. We usually conclude that we need more force. The story concludes otherwise: we need to notice who lends force its strength.
 
-I usually conclude that I need more force. The story concludes otherwise: I need to notice who lends force its forcefulness.
+**Central teaching**
 
-Two of my three great powers have now come home empty-handed and honest.
+The repetition is the teaching. It is not one god's failure — every power fails alone. Two great powers have now come home empty-handed and honest, and that is further along the path than full-handed and proud.
 
-Empty-handed and honest is further along this path than full-handed and proud.
+**In one sentence**
+
+Cleverness failed, then strength failed — because the mistake was never in the tool.
 
 ---
 
 # 25. It Vanished
+
+**The Verse**
 
 > Then the gods said to Indra, their king:
 > "Find out what this strange spirit is."
@@ -598,23 +703,27 @@ Empty-handed and honest is further along this path than full-handed and proud.
 >
 > — Kena Upanishad, 3.11
 
-Now the king himself goes — Indra, the ego, the "I" that rules all the faculties.
+**Explanation**
 
-Fire and wind at least got an interview. The ego gets nothing at all.
+Now the king himself goes — Indra, ruler of all the gods. And he gets less than anyone. Fire and wind at least got an interview and a test. For Indra, the spirit simply vanishes. He is left standing alone in an empty sky.
 
-The spirit vanishes — and this is not rejection, it is precision.
+**The deeper meaning**
 
-Fire and wind are powers; they could stand before the truth and be questioned. But the separate "I" is not a power. It is a misunderstanding.
+Indra is the ego — the central "I" that commands all the faculties. Fire and wind are real powers, so truth could stand before them and question them. But the separate "I" is not a power. It is a misunderstanding. When the "I" marches forward to inspect the Self, no meeting is possible — the inspector is the one thing that was never really there.
 
-When the "I" walks forward to inspect the Self, there is no meeting possible — because the inspector is the one thing that was never really there.
+**Central teaching**
 
-Before the ego, truth can only vanish, the way darkness vanishes before a lamp — nothing to greet, nothing to fight.
+The Self cannot be confronted. When the ego charges at it, it vanishes — not as rejection, but the way darkness vanishes before a lamp.
 
-Indra stands alone in an empty sky. Every seeker knows this exact spot.
+**In one sentence**
+
+When the ego rushes at truth, truth vanishes — there is no one there to meet.
 
 ---
 
 # 26. The Woman in the Sky
+
+**The Verse**
 
 > In that very sky where the spirit vanished,
 > Indra came upon a woman shining with beauty —
@@ -623,47 +732,55 @@ Indra stands alone in an empty sky. Every seeker knows this exact spot.
 >
 > — Kena Upanishad, 3.12
 
-Indra does something neither fire nor wind thought to do.
+**Explanation**
 
-He does not run home. He does not report failure. He stays in the empty place.
+Indra does something neither fire nor wind thought to do. He does not run home and report failure. He stays in the empty place. And the empty place turns out not to be empty — where the spirit vanished, wisdom herself is standing. Uma appears, and Indra asks her a simple question.
 
-And the empty place turns out not to be empty. Where the spirit vanished, wisdom herself is standing.
+**The deeper meaning**
 
-Uma is grace — the understanding that cannot be seized but can be received.
+Uma is grace — the understanding that cannot be seized but can be received. And look at what has changed in the king of the gods: he is not boasting now, not testing, not investigating. He asks. Humility plus staying with the question — that is the whole method.
 
-Watch what has changed in the king of the gods: he is not boasting now, not testing, not interrogating.
+**Central teaching**
 
-He asks. Four humble words: what was that spirit?
+Power burned, blew, and failed. A question, asked humbly, is about to succeed. The whole story has been walking toward this one small sentence.
 
-The whole story has been walking toward this one small sentence. Power burned and blew and failed; a question, asked humbly, is about to succeed.
+**In one sentence**
+
+Stay where the mystery vanished, ask humbly, and wisdom comes to meet you.
 
 ---
 
 # 27. It Was Brahman
 
+**The Verse**
+
 > She said: "It was Brahman.
-> It was Brahman's victory you were glorying in as your own."
+> It was Brahman's victory you were treating as your own."
 > Then Indra knew: it was Brahman.
 >
 > — Kena Upanishad, 4.1
 
-One sentence from wisdom, and the whole story falls into place.
+**Explanation**
 
-The strange spirit was never strange. It was the power that had won their battle for them all along.
+One sentence from wisdom, and the whole story falls into place. The strange spirit was never strange. It was the power that had won their battle for them all along. Notice what the answer corrects: not their strength, but their accounting. The victory was real. Only the "ours" was false.
 
-Notice what the answer corrects: not their strength, but their bookkeeping. The victory was real; only the "ours" was false.
+**The deeper meaning**
 
-My life's ledger has the same error on every page. The talents were real, the work was real, the successes were real — the "mine" was the forgery.
+Our life's ledger has the same error on every page. The talents were real, the work was real, the successes were real — the "mine" was the forgery. And notice how knowing finally happened: not by burning, not by lifting, not by inspecting. By listening.
 
-And notice how knowing finally happened: not by burning, not by lifting, not by inspecting.
+**Central teaching**
 
-By listening.
+The ego, humbled and asking, is where recognition finally lands. Indra becomes the first of the gods to know Brahman — not because he was strongest, but because he was the first to listen.
 
-Indra becomes the first of the gods to know Brahman — the ego, humbled and asking, is where recognition finally lands.
+**In one sentence**
+
+The glory you claimed was never yours — and seeing this is the beginning of knowing.
 
 ---
 
 # 28. Why These Three Stand First
+
+**The Verse**
 
 > That is why Agni, Vayu, and Indra
 > stand above the other gods.
@@ -672,23 +789,27 @@ Indra becomes the first of the gods to know Brahman — the ego, humbled and ask
 >
 > — Kena Upanishad, 4.2
 
-Here is a strange promotion: the three who failed are ranked above all the gods who did not.
+**Explanation**
 
-The others stayed home, safe in their glory, untested and untouched.
+Here is a strange promotion: the three who failed are ranked above all the gods who did not. The others stayed home, safe in their glory, untested. Fire, wind, and the king walked up to the mystery and were humbled by it — and that humbling is counted as nearness.
 
-Fire, wind, and the king walked up to the mystery and were humbled by it — and the humbling is counted as nearness.
+**The deeper meaning**
 
-This reverses my whole idea of failure.
+This reverses our whole idea of failure. To try to reach the truth and be defeated is closer to knowing than never to have approached it. Your collapsed certainties, your methods that fell short, your prayers that seemed to hit an empty sky — the verse calls all of it coming close.
 
-To try to grasp the truth and be defeated is closer to knowing than never to have approached it.
+**Central teaching**
 
-My collapsed certainties, my methods that fell short, my prayers that seemed to hit a vanished sky — the verse calls all of it coming close.
+In this school, the marks of failure are the grades. Greatness is measured by closeness to truth, not by untested power.
 
-In this school, the burn marks of failure are the grades.
+**In one sentence**
+
+The highest are those who came nearest the truth — even through failure.
 
 ---
 
 # 29. Why Indra Above All
+
+**The Verse**
 
 > And that is why Indra stands above them all.
 > He came the closest to the spirit;
@@ -696,23 +817,27 @@ In this school, the burn marks of failure are the grades.
 >
 > — Kena Upanishad, 4.3
 
-Of the three, the highest place goes to the one who was given the least: no interview, no test, no blade of grass. Only a vanishing.
+**Explanation**
 
-But Indra alone stayed in the emptiness that was left behind.
+Of the three, the highest place goes to the one who was given the least — no interview, no test, no blade of grass. Only a vanishing. But Indra alone stayed in the emptiness that was left behind, and he alone asked for help.
 
-Fire and wind treated failure as the end of the inquiry. Indra treated it as the place to stand still.
+**The deeper meaning**
 
-And he alone asked for help.
+Fire and wind treated failure as the end of the inquiry. Indra treated it as the place to stand still. That is the difference. The ego that remains at the point of its own defeat, quietly asking, becomes the very doorway it once blocked.
 
-So the ranking within the ranking is this: approaching is better than staying home; staying is better than leaving; asking is best of all.
+**Central teaching**
 
-The ego that remains at the point of its own defeat, quietly asking, becomes the very doorway it once blocked.
+Approaching is better than staying home. Staying is better than leaving. Asking is best of all.
 
-Nearest to the truth is not the strongest seeker. It is the emptiest one still standing there.
+**In one sentence**
+
+The greatest is not the strongest seeker, but the emptiest one still standing there.
 
 ---
 
 # 30. A Flash of Lightning
+
+**The Verse**
 
 > This is how it is pointed at:
 > it is like a flash of lightning,
@@ -720,23 +845,27 @@ Nearest to the truth is not the strongest seeker. It is the emptiest one still s
 >
 > — Kena Upanishad, 4.4
 
-After the story, the teaching turns practical: how does Brahman actually show itself in experience?
+**Explanation**
 
-Not as a steady possession. As a flash.
+After the story, the teaching turns practical. How does Brahman actually show itself in our experience? Not as a steady possession. As a flash. Sudden, brief, complete — like lightning, like a blink.
 
-A moment of beauty that stops the mind before the mind can name it. The instant of waking, before the world reassembles. A gap between two thoughts, gone as soon as noticed.
+**The deeper meaning**
 
-I have had these flashes all my life and filed them under "nothing."
+You have had these flashes all your life. A moment of beauty that stops the mind before the mind can name it. The instant of waking, before the world reassembles. A gap between two thoughts, gone as soon as noticed. You filed them all under "nothing." The verse says: that flicker is the glimpse of the real.
 
-The verse dignifies them: that flicker is the darshan, the glimpse of the real.
+**Central teaching**
 
-Lightning is not a lesser sun. In one crack it shows the whole landscape that was always there in the dark.
+Lightning is not a lesser sun. In one crack it shows the whole landscape that was always there in the dark. Your work is not to manufacture the flash — no one can. It is to stop dismissing it when it comes.
 
-My work is not to manufacture the flash — no one can. It is to stop dismissing it when it comes.
+**In one sentence**
+
+Truth shows itself in flashes — stop calling them nothing.
 
 ---
 
 # 31. The Mind Keeps Turning Toward It
+
+**The Verse**
 
 > And this is its sign within oneself:
 > the mind seems to move toward it,
@@ -745,23 +874,27 @@ My work is not to manufacture the flash — no one can. It is to stop dismissing
 >
 > — Kena Upanishad, 4.5
 
-Outside, a lightning flash. Inside, something gentler: a leaning.
+**Explanation**
 
-The mind cannot think Brahman — the first section settled that. But watch the mind closely and it is forever turning in that direction, like a plant toward a window.
+Outside, a lightning flash. Inside, something gentler: a leaning. The mind cannot think Brahman — that was settled in the first chapter. But watch the mind closely, and it is forever turning in that direction, like a plant toward a window. That pull is the inner sign.
 
-Every desire, traced far enough down, is a desire for what is whole and unafraid.
+**The deeper meaning**
 
-Every remembering of peace, every reaching of the will toward something better — the verse says this pull itself is the sign.
+Every desire, traced far enough down, is a desire for what is whole and unafraid. You thought your longing was evidence of distance — proof that truth is far away. It is actually evidence of connection. Iron does not lean toward a magnet that is absent.
 
-I thought my longing was evidence of distance. It is actually evidence of connection.
+**Central teaching**
 
-Iron does not lean toward a magnet that is absent.
+Even your restlessness is redeemed here. It was always homesickness, pointed the right way.
 
-So even my restlessness gets redeemed today: it was always homesickness, pointed the right way.
+**In one sentence**
+
+The mind's own pull toward truth is the sign that truth is near.
 
 ---
 
 # 32. What All Beings Long For
+
+**The Verse**
 
 > Its secret name is Tadvana —
 > "that which all beings long for."
@@ -770,23 +903,27 @@ So even my restlessness gets redeemed today: it was always homesickness, pointed
 >
 > — Kena Upanishad, 4.6
 
-Of all the names scripture gives the nameless, this one is the tenderest: the longed-for.
+**Explanation**
 
-Not the almighty, not the judge, not even the truth — the beloved.
+Of all the names given to the nameless, this is the tenderest: the longed-for. Not the almighty, not the judge — the beloved. The Upanishad says to adore it as that: as the one thing every being is actually reaching for.
 
-Everything I have ever wanted was this, wearing a mask. Money was safety's mask. Praise was worth's mask. Love was union's mask.
+**The deeper meaning**
 
-Behind every mask, the same face — the one thing every being is actually reaching for.
+Everything you have ever wanted was this, wearing a mask. Money was safety's mask. Praise was worth's mask. Love was union's mask. Behind every mask, the same face. To know this is to stop shaming your desires and start reading them correctly — all the way to the bottom.
 
-To adore it as Tadvana is to stop shaming my desires and start reading them correctly, all the way to the bottom.
+**Central teaching**
 
-And the promise at the end is quiet and true: whoever finds the source of all longing becomes a resting place for others.
+And the closing promise is quiet and true: whoever finds the source of all longing becomes a resting place for others. People cannot help loving the one in whom the search has ended.
 
-People cannot help loving the one in whom the search has ended.
+**In one sentence**
+
+Everything anyone has ever wanted is, in the end, this.
 
 ---
 
 # 33. Nothing Was Held Back
+
+**The Verse**
 
 > The student said: "Sir, teach me the secret teaching."
 > The teacher replied: "It has been told to you.
@@ -794,23 +931,27 @@ People cannot help loving the one in whom the search has ended.
 >
 > — Kena Upanishad, 4.7
 
-The student asks for more, and the teacher's answer is the last trap sprung.
+**Explanation**
 
-*Surely there is something further — an advanced version, a hidden key kept for the end.*
+The student asks for more — surely there is something further, an advanced version, a hidden key kept for the end. The teacher's answer is final: there is not. The teaching is complete, and was complete pages ago. Nothing was held back.
 
-There is not. The teaching is complete, and was complete pages ago.
+**The deeper meaning**
 
-The mind that always wants the next teaching is the same mind that sends fire and wind to grasp what cannot be grasped — seeking has itself become the hiding place.
+The mind that always wants the next teaching is the same mind that sent fire and wind to grasp what cannot be grasped. Seeking itself can become the hiding place. If something still feels missing, it is not missing from the teaching.
 
-Anything still missing is not missing from the teaching.
+**Central teaching**
 
-What remains is not to learn but to stand where the words have been pointing all along.
+What remains is not to learn more, but to stand where the words have been pointing all along. The teacher shuts the book gently.
 
-The teacher shuts the book gently. This page does the same.
+**In one sentence**
+
+There is no further secret; you have already heard it all.
 
 ---
 
 # 34. What It Stands On
+
+**The Verse**
 
 > Discipline, self-restraint, and honest work are its feet.
 > The scriptures are its limbs.
@@ -818,23 +959,27 @@ The teacher shuts the book gently. This page does the same.
 >
 > — Kena Upanishad, 4.8
 
-Having said the knowledge cannot be grasped, the Upanishad now says what it stands on. Even the highest seeing needs legs.
+**Explanation**
 
-Discipline — a life with some order in it, so the flash has a still surface to land on.
+Having said the knowledge cannot be grasped, the Upanishad now says what it stands on. Even the highest seeing needs legs. Discipline gives it a place to land. Restraint stops us from leaking ourselves away in every direction. Honest work keeps the hands clean. The scriptures carry it, and truth is the house it lives in.
 
-Restraint — not squeezing myself dry, just not leaking myself away in every direction.
+**The deeper meaning**
 
-Work — the hands busy and honest, as the Isha taught.
+Insight visits anyone — the flash of lightning is free. But it stays only where a life has been made ready to hold it. A disordered, dishonest life can receive the glimpse and lose it by evening. This verse is not a moral lecture; it is practical advice about keeping what you have seen.
 
-Scriptures as limbs: the words carry the body of it, though they are not its heart.
+**Central teaching**
 
-And truth as its home: one lie, and the whole house has no address.
+One lie, and the whole house has no address. Truth is not just what this knowledge reveals — it is where this knowledge lives.
 
-Insight visits anyone. It stays only where a life has been made ready to hold it.
+**In one sentence**
+
+This knowledge stands on a disciplined, honest life — and lives in truth.
 
 ---
 
 # 35. Established in the Boundless
+
+**The Verse**
 
 > Whoever knows this teaching
 > shakes off all wrongdoing
@@ -844,16 +989,19 @@ Insight visits anyone. It stays only where a life has been made ready to hold it
 >
 > — Kena Upanishad, 4.9
 
-The last verse makes two promises, and repeats the second so I do not miss it.
+**Explanation**
 
-First: wrongdoing falls away. Not fought off — shaken off, the way dust falls from a cloth snapped in the morning air.
+The last verse makes two promises, and repeats the second so we do not miss it. First: wrongdoing falls away — not fought off, shaken off, like dust from a cloth. Second: established. Not visiting the boundless, not glimpsing it — settled in it, the way a house is settled on rock.
 
-Most of my wrongness was never wickedness. It was the scrambling of someone who believed he was small and alone. Remove the belief, and the scrambling has no engine.
+**The deeper meaning**
 
-Second: established. Not visiting the boundless, not glimpsing it — settled in it, the way a house is settled on rock.
+Most of our wrongness was never wickedness. It was the scrambling of someone who believed they were small and alone. Remove the belief, and the scrambling has no engine. Fear works the same way: it belongs to the small self. What is boundless has no edges to defend.
 
-The Upanishad began with a question: by whom? It ends with a home.
+**Central teaching**
 
-Between the question and the home there was no distance at all — only a lifetime of looking outward.
+The Upanishad began with a question — by whom? It ends with a home. Between the question and the home there was no distance at all, only a lifetime of looking outward.
 
-Established there — the book says it twice, softly, and puts down its pen.
+**In one sentence**
+
+Know this, and you stand where fear cannot reach.
+

@@ -1,22 +1,26 @@
 # 2. The Ear of the Ear
 
+**The Verse**
+
 > It is the ear of the ear, the mind of the mind,
 > the speech of speech, the breath of the breath, the eye of the eye.
-> The wise let go of the lesser self they took themselves to be,
+> The wise let go of the small self they took themselves to be,
 > and leaving this world, become immortal.
 >
 > — Kena Upanishad, 1.2
 
-Here is the answer, given as a riddle: behind each instrument stands its life.
+**Explanation**
 
-The ear is a mechanism. Something hears through it — that is the ear of the ear.
+The teacher answers the question. Behind the ear there is something that makes hearing possible. Behind the mind there is something that makes thinking possible. It is not another organ. It is the one power that all the organs run on. The wise stop thinking "I am this body and mind" and know that power as themselves.
 
-The mind is a mechanism too. Something knows the mind's thoughts — that is the mind of the mind.
+**The deeper meaning**
 
-I have spent my life as the instruments: I said *I* see, *I* think, *I* speak.
+You have always taken yourself to be the instruments — the eyes, the thoughts, the voice. But instruments are tools. A microphone does not speak; someone speaks through it. Your mind does not know; something knows through it. That something is you.
 
-The wise make one correction: I am not the instruments; I am what works through them.
+**Central teaching**
 
-Nothing else changes. The seeing, thinking, and breathing go on.
+There are two things here: the instruments, and the power behind them. All fear comes from thinking you are the instruments, because instruments wear out. Freedom begins when you know you are the power.
 
-Only the address changes — and with the old address goes the old dying.
+**In one sentence**
+
+You are not the ear, the eye, or the mind — you are the life that works through them.

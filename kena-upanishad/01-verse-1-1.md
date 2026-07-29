@@ -1,22 +1,26 @@
 # 1. The First Question
 
-> Who sends the mind out toward its objects?
-> Who commands the breath to move?
-> Who makes us speak these words?
-> What god drives the eye and the ear?
+**The Verse**
+
+> Who makes the mind think?
+> Who makes the breath move?
+> Who makes us speak?
+> What power is behind the eye and the ear?
 >
 > — Kena Upanishad, 1.1
 
-This whole Upanishad grows from one question, asked four ways.
+**Explanation**
 
-My mind runs to things all day. I never once asked who sends it.
+A student asks his teacher a question. The eye sees. The ear hears. The mind thinks. But who is running all of this? The eye does not switch itself on. So the student asks: what is behind it all?
 
-Breath moves whether I attend to it or not. Something moves it.
+**The deeper meaning**
 
-I always looked at what the eye shows me. This question turns me around to look at what is looking.
+The question is about you. Right now, your eyes are reading these words. But you are not doing the seeing — it just happens. You never told your heart to beat. You never told your mind to think. Something deeper is at work, and you have never stopped to ask what it is.
 
-Kena means "by whom?" — and the asking itself is the beginning of the path.
+**Central teaching**
 
-A machine never asks who switched it on. The moment I truly ask, I have already stepped out of the machine.
+We use the eye, the ear, the mind all day. But we never ask who is using them. This one question is the start of all wisdom.
 
-I let the question stand today, unanswered, like a door left open.
+**In one sentence**
+
+Before you look at the world, ask who is looking.

@@ -1,21 +1,25 @@
 # 21. Sending Wind
 
+**The Verse**
+
 > Then the gods said to Vayu, the god of wind:
 > "Find out for us what this strange spirit is."
 > He said: "So be it," and ran toward it.
 >
 > — Kena Upanishad, 3.7
 
-Fire failed, so the gods send wind. This is my mind's favourite trick: change the tool, keep the approach.
+**Explanation**
 
-The intellect failed to grasp the mystery — very well, let effort try. Let willpower try. Let a new method, a new book, a new teacher try.
+Fire failed, so the gods send wind. A new tool, but the same approach. Nobody in the story questions the real mistake — the assumption that the spirit is a thing that can be found out. So every new attempt carries the old error inside it.
 
-Notice what nobody in the story questions: the assumption that the spirit is a thing to be found out.
+**The deeper meaning**
 
-Every new attempt carries the old error inside it, unexamined.
+This is the mind's favorite trick. When cleverness fails, we try effort. When effort fails, we try a new method, a new book, a new teacher. We keep replacing the instrument and calling it progress — while the approach, the real problem, stays untouched.
 
-I do this for years at a time — replacing instruments and calling it progress.
+**Central teaching**
 
-The verse holds no scorn for Vayu; each power must be exhausted honestly before I stop trusting powers.
+Each power must fail honestly before we stop putting our faith in powers. The story lets every instrument have its turn, so that nothing is left to hide behind.
 
-But the reader is allowed a small smile: we already know how this run ends.
+**In one sentence**
+
+When one power fails, the ego does not question itself — it just sends another power.

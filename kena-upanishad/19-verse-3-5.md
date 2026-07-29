@@ -1,21 +1,25 @@
 # 19. What Power Is in You?
 
+**The Verse**
+
 > The spirit asked: "What power is in you?"
 > Agni said: "I can burn all this —
 > everything that stands upon the earth."
 >
 > — Kena Upanishad, 3.5
 
-The second question is as gentle as the first: what can you do?
+**Explanation**
 
-And again the answer is total: everything. I can burn everything.
+The spirit asks a second gentle question: what can you do? And again the answer is total — everything. I can burn everything on earth. The spirit does not argue with the boast. It is about to do something much kinder and much more devastating: give the boast one small test.
 
-Power always talks like this. It defines itself by what it can do to things, and it rounds itself up to "all."
+**The deeper meaning**
 
-I hear this voice in myself on my good days. Capable, confident, slightly drunk on competence.
+Power always talks like this. It defines itself by what it can do, and it rounds itself up to "all." We hear this voice in ourselves on our good days — capable, confident, slightly drunk on competence: "there is nothing I couldn't handle."
 
-*There is nothing I couldn't handle.*
+**Central teaching**
 
-The spirit does not argue with the boast. Arguing would only feed it.
+The ego has two answers to "who are you?": its titles, and its powers. Both are borrowed, and the story is about to prove it.
 
-It is about to do something far kinder and far more devastating: give the boast one small test.
+**In one sentence**
+
+The ego answers "who are you?" with "look what I can do."

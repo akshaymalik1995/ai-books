@@ -1,21 +1,25 @@
 # 23. I Can Carry It All
 
+**The Verse**
+
 > The spirit asked: "What power is in you?"
 > Vayu said: "I can carry away all this —
 > everything that rests upon the earth."
 >
 > — Kena Upanishad, 3.9
 
-Again the boast rounds up to "all," as boasts do.
+**Explanation**
 
-Wind believes the whole earth is portable, given enough of himself.
+Again the boast rounds up to "all." Wind believes the whole earth can be carried, given enough of himself. This is the creed of pure effort: anything can be lifted if I push hard enough, sleep less, try again.
 
-This is the creed of pure effort: anything can be lifted if I push hard enough, sleep less, try again.
+**The deeper meaning**
 
-Effort has carried much in my life; I owe it real gratitude.
+Effort has carried much in our lives, and it deserves real gratitude. But effort, like fire, runs on borrowed current — and has quietly forgotten the lender. The strongest muscle in the world cannot lift its own strength.
 
-But effort, like fire, runs on borrowed current, and has quietly forgotten the lender.
+**Central teaching**
 
-The strongest muscle in the world cannot lift its own strength.
+The test is being prepared again. And notice the spirit itself: it never argues, never raises its voice. Truth does not debate the ego; it simply lets the ego meet its limit.
 
-The little test is being prepared again — and the reader already loves this spirit, who never once raises its voice.
+**In one sentence**
+
+Effort believes it can carry everything — except the question of where effort comes from.

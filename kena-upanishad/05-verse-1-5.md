@@ -1,5 +1,7 @@
 # 5. What Speech Cannot Say
 
+**The Verse**
+
 > That which speech cannot express,
 > but by which speech itself is expressed —
 > know that alone to be Brahman,
@@ -7,16 +9,18 @@
 >
 > — Kena Upanishad, 1.5
 
-Now come five verses, one for each instrument, each with the same sword in it.
+**Explanation**
 
-Words can describe everything except the power that speaks them.
+Words cannot describe Brahman, because Brahman is the power that makes words possible. Then comes a bold line: whatever people worship "here" — any form, any image, any idea of God placed in front of them — that is not it. A thing in front of you cannot be the power behind you.
 
-Every prayer I have said was made of words — and so every prayer fell short of what makes prayer possible.
+**The deeper meaning**
 
-"Not this that people worship here": the verse dares to say that most worship aims too low.
+Anything you can name is held inside your mind, so it is smaller than you. Any God you can picture is a picture — made by the mind, powered by the very reality you are trying to find. The Upanishad is not against worship. It is against stopping at the picture.
 
-Whatever I can name, praise, or picture is already not It — because naming needs something prior that names.
+**Central teaching**
 
-I am not asked to stop speaking or praying.
+Do not confuse the described with the describer. God is not the greatest object in the world; God is what makes seeing any object possible.
 
-I am asked to remember, mid-sentence, the silent one the sentence rides on.
+**In one sentence**
+
+What you cannot put into words, but which lets you speak at all — that is God.

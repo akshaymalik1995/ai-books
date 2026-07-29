@@ -1,21 +1,31 @@
 # 15. Whose Victory?
 
+**The Verse**
+
 > Brahman once won a victory for the gods.
 > But the gods took the glory of that victory for themselves.
 > They thought: this victory is ours, this glory is ours.
 >
 > — Kena Upanishad, 3.1
 
-Now the Upanishad stops arguing and tells a story.
+**Explanation**
 
-The gods had just won a great battle. The winning power was Brahman's; the credit-taking was theirs.
+Now the Upanishad stops explaining and tells a story. The gods had just won a great battle against the demons. But the power behind their victory was Brahman's — the gods were only instruments. Instead of seeing this, they became proud. They believed the success belonged to them.
 
-I know this move from the inside. Health returns, work succeeds, praise arrives — and something in me quietly signs its own name on the gift.
+**The deeper meaning**
 
-"I did this" is the oldest forgery in the world.
+The story is not about gods. It is about us. Whenever we think —
 
-The gods here are my own faculties: fire of intellect, wind of breath, king of the mind. All of them run on borrowed power, and all of them forget it.
+- "I succeeded because I am brilliant."
+- "I achieved this entirely on my own."
+- "My talent made this happen."
 
-Nothing has gone wrong yet in the story — there is only success and pride.
+— we are making the same mistake as the gods. Our intelligence, strength, and opportunities all arise from something deeper than the ego that signs its name on them.
 
-That is exactly the moment truth chooses to appear.
+**Central teaching**
+
+Two views of the same success. Truth: all power and ability ultimately come from Brahman. Ignorance: the ego claims ownership and says "I did it."
+
+**In one sentence**
+
+Whenever the ego claims a victory, it forgets the deeper power that made the victory possible.

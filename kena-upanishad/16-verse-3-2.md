@@ -1,21 +1,25 @@
 # 16. The Strange Spirit
 
+**The Verse**
+
 > Brahman saw their pride,
 > and appeared before them as a strange spirit.
 > They could not make out what it was.
 >
 > — Kena Upanishad, 3.2
 
-The truth did not send a punishment. It simply showed up.
+**Explanation**
 
-But to eyes swollen with "ours," the most familiar thing in existence looked like a stranger.
+Brahman does not punish the proud gods. It simply appears before them — as a strange spirit they cannot recognize. Here is the quiet joke of the story: the gods cannot recognize the very power they are made of. Their pride has made the most familiar thing in existence look like a stranger.
 
-This is the quiet joke of the story: the gods could not recognize the very power they were made of.
+**The deeper meaning**
 
-The same happens in me. The source of every ability stands in plain view — as awareness itself — and I walk past it daily, calling it nothing in particular.
+The same thing happens in us. The source of every ability stands in plain view — as our own awareness — and we walk past it daily, calling it nothing in particular. Pride only has eyes for what it can own, and this cannot be owned. That is why it looks strange.
 
-What makes it look strange is not distance. It is my pride, which only has eyes for what it can own.
+**Central teaching**
 
-The unclaimable always looks alien to a claimer.
+Truth does not stay away from the proud. It comes near — but pride cannot recognize it. The problem is never distance; it is the "mine" in our eyes.
 
-Yet notice: it appeared. Even to the proud, it comes near. The story is already full of grace.
+**In one sentence**
+
+When pride grows, truth stands right in front of us — unrecognized.

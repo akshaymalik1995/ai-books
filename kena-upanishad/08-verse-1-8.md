@@ -1,5 +1,7 @@
 # 8. What the Ear Cannot Hear
 
+**The Verse**
+
 > That which the ear cannot hear,
 > but by which the ear itself hears —
 > know that alone to be Brahman,
@@ -7,16 +9,18 @@
 >
 > — Kena Upanishad, 1.8
 
-Every sound arrives inside something soundless.
+**Explanation**
 
-I notice sounds all day; I have never once noticed what receives them.
+Sounds come and go — words, music, noise. The ear catches them all. But the ear will never catch the power that makes hearing happen. Brahman is not a sound among sounds, not even the most sacred one. It is what hears.
 
-The receiving has no volume. It never gets louder or softer. It was there before the sound and remains after.
+**The deeper meaning**
 
-Even sacred sound — the chant, the bell, the holy name — is a guest in that silent hall.
+Notice something simple: every sound you have ever heard arrived inside a listening that was already there. The sounds kept changing. The listening never did. And the listening is not the ear — the ear is just flesh. Something aware is using the ear. You have been listening your whole life and never once asked what this listening is.
 
-The chant is not worthless; it points home. But the hall is greater than the guest.
+**Central teaching**
 
-Tonight, when a sound ends — a fan switched off, a voice gone quiet — I catch the silence it ends into.
+Truth is not a message you will one day hear. It is the hearing itself — present in every sound, and present between sounds too.
 
-That silence is the nearest doorway the ear will ever show me.
+**In one sentence**
+
+It is not a sound you will hear; it is the silence that is listening.

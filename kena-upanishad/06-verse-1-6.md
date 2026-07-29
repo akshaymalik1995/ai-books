@@ -1,5 +1,7 @@
 # 6. What the Mind Cannot Think
 
+**The Verse**
+
 > That which the mind cannot think,
 > but by which the mind itself thinks —
 > know that alone to be Brahman,
@@ -7,16 +9,18 @@
 >
 > — Kena Upanishad, 1.6
 
-I have tried to think my way to the Self. This verse tells me why it never worked.
+**Explanation**
 
-A thought about Brahman is still just a thought — one more object floating in awareness.
+The same key now turns in another lock. The mind cannot think Brahman, because Brahman is what makes thinking happen. Every thought — including every thought about God — is lit up by it, the way every scene in a film is lit up by the projector lamp. The lamp itself never appears on the screen.
 
-The awareness it floats in is what I was trying to think about.
+**The deeper meaning**
 
-The net cannot catch the fisherman.
+You have thought about truth many times. Each time, you got a thought — and a thought is just another object appearing in you. Thinking will never cross over to the thinker. But notice: something is aware of every thought as it comes and goes. That quiet awareness is closer to you than any thought.
 
-So the highest idea of God I will ever have is still an idea, and still not It.
+**Central teaching**
 
-This is not a defeat for the mind; it is the mind's finest hour — the moment it sees its own edge and bows.
+Stop trying to grasp it with thought, and start noticing what is already aware of thought. The first is impossible. The second is happening right now.
 
-Where thinking stops honestly, what was always here stands unhidden.
+**In one sentence**
+
+You cannot think it, because it is what thinks in you.

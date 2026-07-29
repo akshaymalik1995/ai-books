@@ -1,20 +1,25 @@
 # 3. Where Words Turn Back
 
+**The Verse**
+
 > The eye does not go there. Speech does not go there, nor the mind.
-> We do not know it as an object; we do not see how one could teach it.
+> It is not a thing we can know like other things,
+> and we do not see how one could teach it.
 >
 > — Kena Upanishad, 1.3
 
-Every tool I have was built for catching objects.
+**Explanation**
 
-The eye catches shapes. Words catch ideas. The mind catches thoughts.
+Now comes a warning. Do not expect to see this power, describe it, or think it out. The eye cannot see it. Words cannot reach it. The mind cannot picture it. It is not one more thing in the world, so it cannot be studied like a thing.
 
-But the Self is not one more object lying among the others.
+**The deeper meaning**
 
-The eye cannot turn and see its own seeing, just as a knife cannot cut its own edge.
+Everything you have ever known, you knew as an object — something in front of you. But this is not in front of you. It is you. The eye can see everything except itself. That is why the search feels so strange: you are looking for the one who is looking.
 
-So when the teachers say "we do not know it," they are not confessing failure.
+**Central teaching**
 
-They are being precise: it cannot be known the way a thing is known, because it is what does the knowing.
+The Self cannot be found the way things are found, because it is not a thing. When the teachers say "we do not know it," they are not failing — they are being exact.
 
-My search changes today: I stop hunting for a new object, and grow quiet toward the hunter.
+**In one sentence**
+
+You cannot see the seer.
