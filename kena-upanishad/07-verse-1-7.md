@@ -1,26 +1,21 @@
 # 7. What the Eye Cannot See
 
-**The Verse**
+## The verse
 
-> That which the eye cannot see,
-> but by which the eye itself sees —
-> know that alone to be Brahman,
-> and not this that people worship here.
->
-> — Kena Upanishad, 1.7
+> "That which the eye cannot see, but by which the eye itself sees—know that alone to be Brahman, and not this that people worship here."
 
-**Explanation**
+## Explanation
 
-The eye is an instrument, like a camera. A camera photographs everything except the photographer. Whatever appears in front of the eye — however grand, however holy — is only a sight. Brahman is not a sight. It is the seeing power itself.
+The eye can see colors, forms, and objects, but it cannot see the power that makes seeing possible. The Upanishad says that Brahman is not something the eyes can look at as an object. Instead, Brahman is the unseen reality because of which the eye is able to function and perception takes place. Everything visible depends on Brahman, yet Brahman itself is never an object of vision.
 
-**The deeper meaning**
+## The deeper meaning
 
-All your life you have trusted the eye: I will believe it when I see it. But the most certain thing in your life has never been seen — the awareness in which every sight appears. Faces change, scenes change, colors change. The seeing has never changed. You have never been shown it, yet you have never been without it.
+This verse shifts our attention from what is seen to the one reality that makes all seeing possible. We usually believe that truth must be something we can observe or imagine. The Upanishad teaches the opposite: the ultimate truth is the ever-present awareness that illuminates every experience but can never itself be seen. Just as a lamp lights everything in a room but does not need another lamp to reveal it, Brahman is the light of all perception.
 
-**Central teaching**
+## Central teaching
 
-Do not wait for a vision of truth. Turn your attention from what is seen to the fact of seeing — that light was never absent.
+Brahman is not an object that the eyes can perceive. It is the eternal reality that gives the eye its power to see and is the foundation of all experience.
 
-**In one sentence**
+## In one sentence
 
-The eye has never seen it, yet without it the eye has never seen anything.
+The eye cannot see Brahman because Brahman is the very source of vision and the light of awareness behind every act of seeing.

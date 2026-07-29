@@ -1,27 +1,25 @@
 # 11. The Honest Answer
 
-**The Verse**
+## The verse
 
-> The student replies: I do not say "I know it well."
-> Nor do I say "I do not know it."
-> Whoever among us understands both sides of this —
-> it cannot be known like a thing, yet it is not unknown —
-> that one truly knows it.
->
-> — Kena Upanishad, 2.2
+*"The student replies: I do not say 'I know it well.' Nor do I say 'I do not know it.' Whoever among us understands both sides of this — it cannot be known like a thing, yet it is not unknown — that one truly knows it."*
 
-**Explanation**
+## Explanation
 
-The student passes the test. He refuses both easy answers. "I know it well" would be false, because the Self is not a thing that can be grasped. "I do not know it" would also be false, because nothing is more directly present. The truth lies between the two.
+The student passes the teacher's test with a remarkably honest answer. He refuses both easy positions. He will not claim "I know it well," because Brahman is not an object that can be grasped and mastered. But he also will not say "I do not know it," because nothing is more immediately present than the reality that powers his own awareness.
 
-**The deeper meaning**
+True knowledge of Brahman lies between these two false statements, and the student shows he has understood exactly this.
 
-Take your own existence. Can you describe it? No. Can you prove it to someone? No. Have you ever doubted it, even for one second? Never. That is the kind of knowing this is — completely certain, without ever being an object. You know Brahman the same way you know that you exist.
+## The deeper meaning
 
-**Central teaching**
+Our own existence gives us a perfect example of this kind of knowing. Can anyone describe their own existence, measure it, or prove it to another person? No. Yet has anyone ever doubted, even for a second, that they exist? Never. This is knowledge that is completely certain without ever being an object of knowledge.
 
-There are two false statements: "I know it" and "I don't know it." Between them runs a narrow path, and the honest walk it.
+Brahman is known in the same way — not as a fact we learn, but as the very being we are. That is why it can never be captured, and also why it can never be missed.
 
-**In one sentence**
+## Central teaching
 
-I cannot know it as a thing, and I can never miss it as myself.
+Brahman cannot be known as a thing, yet it is never unknown, because it is the knower itself.
+
+## In one sentence
+
+The verse teaches that the truest answer about knowing Brahman is neither "I know it" nor "I do not know it," but the recognition that it is one's own ever-present Self.

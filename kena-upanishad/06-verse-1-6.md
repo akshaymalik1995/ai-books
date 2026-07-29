@@ -1,26 +1,25 @@
 # 6. What the Mind Cannot Think
 
-**The Verse**
+## The verse
 
-> That which the mind cannot think,
-> but by which the mind itself thinks —
-> know that alone to be Brahman,
-> and not this that people worship here.
->
-> — Kena Upanishad, 1.6
+> "That which the mind cannot think, but by which the mind itself thinks—know that alone to be Brahman, and not this that people worship here."
 
-**Explanation**
+## Explanation
 
-The same key now turns in another lock. The mind cannot think Brahman, because Brahman is what makes thinking happen. Every thought — including every thought about God — is lit up by it, the way every scene in a film is lit up by the projector lamp. The lamp itself never appears on the screen.
+The verse teaches that Brahman cannot be grasped as an object of thought. The mind can think about people, places, ideas, emotions, and even spiritual concepts, but Brahman is not one more thing for the mind to understand. Instead, Brahman is the very reality that makes thinking possible. Just as a lamp illuminates everything else without needing another lamp to illuminate it, Brahman is the source because of which the mind has the power to know and think.
 
-**The deeper meaning**
+When the Upanishad says, "know that alone to be Brahman," it points us away from treating the Ultimate Reality as something the intellect can capture. Brahman is the silent awareness behind every thought.
 
-You have thought about truth many times. Each time, you got a thought — and a thought is just another object appearing in you. Thinking will never cross over to the thinker. But notice: something is aware of every thought as it comes and goes. That quiet awareness is closer to you than any thought.
+## The deeper meaning
 
-**Central teaching**
+The mind is a powerful instrument, but it has limits. It always works by dividing experience into subject and object—the thinker and the thing thought about. Brahman is beyond this division. It is the eternal witness in whose presence all thoughts arise, remain for a while, and disappear.
 
-Stop trying to grasp it with thought, and start noticing what is already aware of thought. The first is impossible. The second is happening right now.
+This verse shifts the seeker's attention from the contents of the mind to the awareness that knows the mind. Instead of asking, "What can I think about Brahman?" it invites the deeper inquiry, "Who is aware of my thoughts?" In realizing that awareness, one comes closer to the truth of Brahman.
 
-**In one sentence**
+## Central teaching
 
-You cannot think it, because it is what thinks in you.
+Brahman is not an object the mind can comprehend; it is the consciousness that gives the mind its very power to think. True knowledge comes not through conceptual thinking but through realizing the awareness that underlies all thought.
+
+## In one sentence
+
+Brahman is the timeless awareness that the mind can never think about, yet without which the mind could never think at all.

@@ -1,25 +1,23 @@
 # 23. I Can Carry It All
 
-**The Verse**
+## The verse
 
-> The spirit asked: "What power is in you?"
-> Vayu said: "I can carry away all this —
-> everything that rests upon the earth."
->
-> — Kena Upanishad, 3.9
+*"The spirit asked: 'What power is in you?' Vayu said: 'I can carry away all this — everything that rests upon the earth.'"*
 
-**Explanation**
+## Explanation
 
-Again the boast rounds up to "all." Wind believes the whole earth can be carried, given enough of himself. This is the creed of pure effort: anything can be lifted if I push hard enough, sleep less, try again.
+The spirit asks Vayu the second question: what power is in you? And once again the boast rounds itself up to "all." Wind believes the whole earth is portable, given enough of himself. As with Agni, the claim is not baseless — carrying really is the wind's nature. The error is not in the ability but in the assumed ownership of it.
 
-**The deeper meaning**
+## The deeper meaning
 
-Effort has carried much in our lives, and it deserves real gratitude. But effort, like fire, runs on borrowed current — and has quietly forgotten the lender. The strongest muscle in the world cannot lift its own strength.
+Vayu represents the creed of pure effort: anything can be lifted if I push hard enough, sleep less, and try again. Effort has genuinely carried much in our lives, and it deserves gratitude. But effort, like intellect, runs on borrowed current — and it has quietly forgotten the lender. The strongest muscle in the world cannot lift its own strength.
 
-**Central teaching**
+Notice also the spirit's manner: it never argues, never raises its voice. Truth does not debate the ego. It simply allows the ego to meet its own limit.
 
-The test is being prepared again. And notice the spirit itself: it never argues, never raises its voice. Truth does not debate the ego; it simply lets the ego meet its limit.
+## Central teaching
 
-**In one sentence**
+Effort and strength are real but borrowed; the moment they claim independence, they are ready for their lesson.
 
-Effort believes it can carry everything — except the question of where effort comes from.
+## In one sentence
+
+The verse shows the pride of effort, which believes it can carry everything except the question of where its strength comes from.

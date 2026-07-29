@@ -1,25 +1,23 @@
 # 16. The Strange Spirit
 
-**The Verse**
+## The verse
 
-> Brahman saw their pride,
-> and appeared before them as a strange spirit.
-> They could not make out what it was.
->
-> — Kena Upanishad, 3.2
+*"Brahman saw their pride, and appeared before them as a strange spirit. They could not make out what it was."*
 
-**Explanation**
+## Explanation
 
-Brahman does not punish the proud gods. It simply appears before them — as a strange spirit they cannot recognize. Here is the quiet joke of the story: the gods cannot recognize the very power they are made of. Their pride has made the most familiar thing in existence look like a stranger.
+Brahman sees the pride of the gods, but it does not punish them. It simply appears before them — as a mysterious spirit, a Yaksha, that they cannot identify. Here lies the quiet irony of the story: the gods cannot recognize the very power they are made of. Their pride has made the most familiar reality in existence look like a stranger.
 
-**The deeper meaning**
+## The deeper meaning
 
-The same thing happens in us. The source of every ability stands in plain view — as our own awareness — and we walk past it daily, calling it nothing in particular. Pride only has eyes for what it can own, and this cannot be owned. That is why it looks strange.
+The same thing happens within us. The source of all our abilities stands in plain view — as our own awareness — and we pass it by every day, treating it as nothing in particular. Pride sees only what it can own and measure, and Brahman can be neither owned nor measured. That is why, to the proud eye, it appears strange or is not noticed at all.
 
-**Central teaching**
+Yet there is grace in this verse too: Brahman appears. Even to the proud, truth comes near. The problem is never distance; it is the "mine" in our vision.
 
-Truth does not stay away from the proud. It comes near — but pride cannot recognize it. The problem is never distance; it is the "mine" in our eyes.
+## Central teaching
 
-**In one sentence**
+Truth does not withdraw from the proud — it stands before them unrecognized, because pride cannot see what it cannot possess.
 
-When pride grows, truth stands right in front of us — unrecognized.
+## In one sentence
+
+The verse teaches that when pride fills the heart, the ultimate reality can stand directly in front of us and still remain unknown.

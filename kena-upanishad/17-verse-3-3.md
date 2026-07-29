@@ -1,25 +1,23 @@
 # 17. Sending Fire
 
-**The Verse**
+## The verse
 
-> The gods said to Agni, the god of fire:
-> "Find out for us what this strange spirit is."
-> He said: "So be it," and ran toward it.
->
-> — Kena Upanishad, 3.3
+*"The gods said to Agni, the god of fire: 'Find out for us what this strange spirit is.' He said: 'So be it,' and ran toward it."*
 
-**Explanation**
+## Explanation
 
-Faced with something they cannot recognize, the gods send their sharpest power to investigate: Agni, the god of fire. Fire is the one who lights things up and burns through them. He runs at the mystery, confident he will crack it.
+Faced with something they cannot identify, the gods send their most brilliant power to investigate: Agni, the god of fire. Fire illuminates and consumes; if anyone can expose the stranger, surely it is he. Agni agrees confidently and runs toward the spirit.
 
-**The deeper meaning**
+## The deeper meaning
 
-In us, fire is the intellect — the power that analyzes and figures things out. When something we cannot explain enters our life, our first response is never to bow. It is to analyze. "Let me work out what this is." That is Agni running. There is nothing wrong in the running; the intellect is doing its honest job. But watch the posture: the mystery is treated as one more object to be cracked open.
+In our inner world, Agni represents the intellect — the power that analyzes, illuminates, and breaks things down. When something beyond our understanding enters our life, our first response is rarely humility. It is analysis: "Let me figure out what this is." That is Agni running.
 
-**Central teaching**
+There is nothing wrong with the intellect doing its honest work. But notice the posture: the mystery is approached as one more object to be cracked open. The first chapter has already warned that the mind cannot think that by which the mind thinks. The story is now going to demonstrate this truth in action.
 
-The first chapter already warned us: the mind cannot think what the mind thinks by. The story is about to show the same truth in action.
+## Central teaching
 
-**In one sentence**
+The intellect is the first power we send toward the ultimate mystery, and its confidence conceals a wrong assumption — that Brahman is an object that can be figured out.
 
-Faced with a mystery, our first move is to send the intellect to size it up.
+## In one sentence
+
+The verse shows our instinctive first response to the unknown: sending the proud intellect to size up what can never be sized up.

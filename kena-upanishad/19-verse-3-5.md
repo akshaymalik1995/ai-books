@@ -1,25 +1,25 @@
 # 19. What Power Is in You?
 
-**The Verse**
+## The verse
 
-> The spirit asked: "What power is in you?"
-> Agni said: "I can burn all this —
-> everything that stands upon the earth."
->
-> — Kena Upanishad, 3.5
+*"The spirit asked: 'What power is in you?' Agni said: 'I can burn all this — everything that stands upon the earth.'"*
 
-**Explanation**
+## Explanation
 
-The spirit asks a second gentle question: what can you do? And again the answer is total — everything. I can burn everything on earth. The spirit does not argue with the boast. It is about to do something much kinder and much more devastating: give the boast one small test.
+The spirit asks a second gentle question: what can you do? Agni's answer is total — "I can burn everything on the earth." The boast is not empty; burning really is fire's nature and glory. But notice that Agni defines himself entirely by his capability, and rounds that capability up to "all."
 
-**The deeper meaning**
+The spirit does not argue with the claim. It is preparing something far more effective than argument: a small test.
 
-Power always talks like this. It defines itself by what it can do, and it rounds itself up to "all." We hear this voice in ourselves on our good days — capable, confident, slightly drunk on competence: "there is nothing I couldn't handle."
+## The deeper meaning
 
-**Central teaching**
+Power always speaks this way. It measures itself by what it can do to things, and in its confidence it inflates itself to the absolute. We hear the same voice in ourselves in successful times — capable, assured, quietly convinced that nothing could really stop us.
 
-The ego has two answers to "who are you?": its titles, and its powers. Both are borrowed, and the story is about to prove it.
+The Upanishad is mapping the anatomy of the ego: first it presents its titles, then its powers. Both feel like self-knowledge. Neither answers the question "Who are you?"
 
-**In one sentence**
+## Central teaching
 
-The ego answers "who are you?" with "look what I can do."
+Defining ourselves by our abilities is the ego's second answer to the question of identity — and it is about to be shown as borrowed.
+
+## In one sentence
+
+The verse shows the ego answering "Who are you?" with "Look what I can do," just before that claim is put to the test.

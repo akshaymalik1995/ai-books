@@ -1,26 +1,23 @@
 # 20. A Blade of Grass
 
-**The Verse**
+## The verse
 
-> The spirit placed a blade of grass before him and said: "Burn this."
-> Agni rushed at it with all his speed, and could not burn it.
-> He returned to the gods and said:
-> "I could not find out what that spirit is."
->
-> — Kena Upanishad, 3.6
+*"The spirit placed a blade of grass before him and said: 'Burn this.' Agni rushed at it with all his speed, and could not burn it. He returned to the gods and said: 'I could not find out what that spirit is.'"*
 
-**Explanation**
+## Explanation
 
-Not a mountain. Not an ocean. A blade of grass. The god who claimed he could burn everything fails at the smallest thing on earth — because this time, the power behind his power holds itself back. Fire never owned its burning. It was always lent, moment by moment.
+The test is almost comically small. Not a mountain, not an ocean — a blade of grass. The god who claimed he could burn everything on earth cannot burn the smallest thing on it, because this time the power behind his power withholds itself. Fire never owned its burning; it was lent to him, moment by moment, by Brahman. Defeated, Agni returns and honestly admits that he could not discover what the spirit is.
 
-**The deeper meaning**
+## The deeper meaning
 
-So it is with our thinking, our talent, the strength of our hands. All of it runs on borrowed power. Withdraw the loan for one moment, and the greatest expert cannot manage the simplest task. We have all had such days; we called them bad luck.
+The same is true of our intelligence, our talents, and the strength of our hands. All of them run on borrowed power. When the source withholds itself even briefly, the greatest expert cannot manage the simplest task. Most of us have experienced such moments and called them bad luck or an off day.
 
-**Central teaching**
+Agni's honest report matters too. The intellect returning with empty hands, admitting "I could not find out," is not the end of the search — it is the first genuinely true statement in the story.
 
-Agni's report is honest: "I could not find out." The intellect coming home with empty hands is not the end of the search. It is the first true step of it.
+## Central teaching
 
-**In one sentence**
+Every power we have is lent by Brahman, and without that lending, even the mightiest ability fails at the smallest task.
 
-Without the power behind it, fire cannot burn even a blade of grass.
+## In one sentence
+
+The verse teaches that fire could not burn even a blade of grass without Brahman — and neither can any talent of ours act on its own.

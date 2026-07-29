@@ -1,31 +1,25 @@
 # 15. Whose Victory?
 
-**The Verse**
+## The verse
 
-> Brahman once won a victory for the gods.
-> But the gods took the glory of that victory for themselves.
-> They thought: this victory is ours, this glory is ours.
->
-> — Kena Upanishad, 3.1
+*"Brahman once won a victory for the gods. But the gods took the glory of that victory for themselves. They thought: this victory is ours, this glory is ours."*
 
-**Explanation**
+## Explanation
 
-Now the Upanishad stops explaining and tells a story. The gods had just won a great battle against the demons. But the power behind their victory was Brahman's — the gods were only instruments. Instead of seeing this, they became proud. They believed the success belonged to them.
+This verse begins the famous story of the third chapter. The gods had just defeated the demons. But the power behind their victory came from Brahman — the ultimate Reality. The gods were only instruments through which Brahman acted. Instead of recognizing this, they became proud. They believed the success belonged to them alone.
 
-**The deeper meaning**
+The Upanishad immediately points out that this belief is an illusion.
 
-The story is not about gods. It is about us. Whenever we think —
+## The deeper meaning
 
-- "I succeeded because I am brilliant."
-- "I achieved this entirely on my own."
-- "My talent made this happen."
+The story is not really about gods — it is about us. Whenever we think "I succeeded because I am brilliant," "I achieved this entirely on my own," or "my talents alone made this possible," we are making the same mistake as the gods.
 
-— we are making the same mistake as the gods. Our intelligence, strength, and opportunities all arise from something deeper than the ego that signs its name on them.
+Our intelligence, strength, opportunities, and even the capacity to act arise from something deeper than the individual ego. The Upanishad calls that deeper reality Brahman. The victory is real; only the ownership claimed by the ego is false.
 
-**Central teaching**
+## Central teaching
 
-Two views of the same success. Truth: all power and ability ultimately come from Brahman. Ignorance: the ego claims ownership and says "I did it."
+The verse contrasts two perspectives. Truth: all power, knowledge, and success ultimately arise from Brahman. Ignorance: the ego claims ownership and says, "I did it."
 
-**In one sentence**
+## In one sentence
 
-Whenever the ego claims a victory, it forgets the deeper power that made the victory possible.
+The verse teaches that whenever the ego claims ownership of success, it forgets the deeper truth that every victory is ultimately made possible by Brahman.

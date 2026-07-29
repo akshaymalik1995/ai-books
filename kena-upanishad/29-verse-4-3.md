@@ -1,25 +1,23 @@
 # 29. Why Indra Above All
 
-**The Verse**
+## The verse
 
-> And that is why Indra stands above them all.
-> He came the closest to the spirit;
-> he was the first to know it was Brahman.
->
-> — Kena Upanishad, 4.3
+*"And that is why Indra stands above them all. He came the closest to the spirit; he was the first to know it was Brahman."*
 
-**Explanation**
+## Explanation
 
-Of the three, the highest place goes to the one who was given the least — no interview, no test, no blade of grass. Only a vanishing. But Indra alone stayed in the emptiness that was left behind, and he alone asked for help.
+Among the three honored gods, the highest place goes to Indra — the one who was given the least. He received no interview, no test, no blade of grass; only a vanishing. Yet he stands first, because he alone stayed in the emptiness that was left behind, and he alone asked for help.
 
-**The deeper meaning**
+## The deeper meaning
 
-Fire and wind treated failure as the end of the inquiry. Indra treated it as the place to stand still. That is the difference. The ego that remains at the point of its own defeat, quietly asking, becomes the very doorway it once blocked.
+Agni and Vayu treated their failure as the end of the inquiry and went home. Indra treated his failure as the place to stand still. That single difference made him the first knower of Brahman among the gods.
 
-**Central teaching**
+The verse thus completes a quiet ranking of spiritual attitudes: approaching the truth is better than staying away; remaining at the point of defeat is better than fleeing it; and humbly asking is best of all. The ego that stays present in its own emptiness, still asking, becomes the doorway it once blocked.
 
-Approaching is better than staying home. Staying is better than leaving. Asking is best of all.
+## Central teaching
 
-**In one sentence**
+The closest to truth is not the strongest seeker but the one who remains, emptied of pride, at the very spot where every power failed.
 
-The greatest is not the strongest seeker, but the emptiest one still standing there.
+## In one sentence
+
+The verse teaches that Indra ranks highest because he stayed with his defeat and asked — and staying and asking is how the ego comes nearest to Brahman.

@@ -1,25 +1,23 @@
 # 33. Nothing Was Held Back
 
-**The Verse**
+## The verse
 
-> The student said: "Sir, teach me the secret teaching."
-> The teacher replied: "It has been told to you.
-> We have told you the secret teaching of Brahman itself."
->
-> — Kena Upanishad, 4.7
+*"The student said: 'Sir, teach me the secret teaching.' The teacher replied: 'It has been told to you. We have told you the secret teaching of Brahman itself.'"*
 
-**Explanation**
+## Explanation
 
-The student asks for more — surely there is something further, an advanced version, a hidden key kept for the end. The teacher's answer is final: there is not. The teaching is complete, and was complete pages ago. Nothing was held back.
+At the end of the instruction, the student asks for the secret teaching — surely, he thinks, something deeper has been kept back for the very end, some advanced doctrine reserved for the worthy. The teacher's reply closes that door gently and completely: it has already been told. The teaching the student received *was* the secret teaching. Nothing was held back.
 
-**The deeper meaning**
+## The deeper meaning
 
-The mind that always wants the next teaching is the same mind that sent fire and wind to grasp what cannot be grasped. Seeking itself can become the hiding place. If something still feels missing, it is not missing from the teaching.
+The mind that always wants the next teaching is the same mind that sent fire and wind to grasp what cannot be grasped. Endless seeking can itself become a hiding place — a way of postponing the moment of actually standing where the words point.
 
-**Central teaching**
+If something still feels missing after the teaching is complete, the missing piece is not in the teaching. It is the shift from hearing the truth to living it, and no further instruction can perform that shift on our behalf.
 
-What remains is not to learn more, but to stand where the words have been pointing all along. The teacher shuts the book gently.
+## Central teaching
 
-**In one sentence**
+The highest teaching has already been given; what remains is not more learning but realization.
 
-There is no further secret; you have already heard it all.
+## In one sentence
+
+The verse teaches that there is no further secret beyond what has been taught — the only step left is to make the truth one's own.

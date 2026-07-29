@@ -1,25 +1,23 @@
 # 34. What It Stands On
 
-**The Verse**
+## The verse
 
-> Discipline, self-restraint, and honest work are its feet.
-> The scriptures are its limbs.
-> Truth is its home.
->
-> — Kena Upanishad, 4.8
+*"Discipline, self-restraint, and honest work are its feet. The scriptures are its limbs. Truth is its home."*
 
-**Explanation**
+## Explanation
 
-Having said the knowledge cannot be grasped, the Upanishad now says what it stands on. Even the highest seeing needs legs. Discipline gives it a place to land. Restraint stops us from leaking ourselves away in every direction. Honest work keeps the hands clean. The scriptures carry it, and truth is the house it lives in.
+Having declared that the knowledge of Brahman cannot be grasped by any faculty, the Upanishad now describes what that knowledge stands on in a human life. Even the highest seeing needs legs. Discipline gives it a steady place to land. Self-restraint keeps our energy from leaking away in every direction. Honest work keeps the hands and heart clean. The scriptures form its supporting body, and truth is the home in which it lives.
 
-**The deeper meaning**
+## The deeper meaning
 
-Insight visits anyone — the flash of lightning is free. But it stays only where a life has been made ready to hold it. A disordered, dishonest life can receive the glimpse and lose it by evening. This verse is not a moral lecture; it is practical advice about keeping what you have seen.
+Insight visits anyone — the flash of lightning is free. But it stays only where a life has been prepared to hold it. A restless, dishonest, or undisciplined life can receive the glimpse in the morning and lose it by evening. This verse is not a moral lecture; it is practical guidance about keeping what has been seen.
 
-**Central teaching**
+The last image is the strongest: truth is its home. One lie, and the house of knowledge has no address. Truthfulness is not just a virtue that pleases; it is the dwelling place without which this knowledge cannot remain.
 
-One lie, and the whole house has no address. Truth is not just what this knowledge reveals — it is where this knowledge lives.
+## Central teaching
 
-**In one sentence**
+The knowledge of Brahman rests on a disciplined, restrained, honest life, and it can live only in truth.
 
-This knowledge stands on a disciplined, honest life — and lives in truth.
+## In one sentence
+
+The verse teaches that Self-knowledge stands on discipline, restraint, and honest work — and makes its home in a truthful life.

@@ -1,25 +1,23 @@
 # 18. The Knower of All Things
 
-**The Verse**
+## The verse
 
-> The spirit asked him: "Who are you?"
-> He answered: "I am Agni, the fire.
-> I am the knower of all beings."
->
-> — Kena Upanishad, 3.4
+*"The spirit asked him: 'Who are you?' He answered: 'I am Agni, the fire. I am the knower of all beings.'"*
 
-**Explanation**
+## Explanation
 
-The mystery speaks first, and asks the deepest question in this whole Upanishad: who are you? Given one chance to answer, Agni recites his résumé — a name, a title, a claim: knower of all things.
+The mysterious spirit speaks first, and it asks the deepest question in the whole Upanishad: "Who are you?" Given this one open question, Agni answers with his name and his title — "I am Agni, the knower of all beings." He introduces himself by his reputation and his powers.
 
-**The deeper meaning**
+## The deeper meaning
 
-We answer the same way. Asked who we are, we give a profession, a family role, a list of achievements. But every item on that list is something we *have* — none of it is what we *are*. The question "who are you?" was an open door. The proud answer closed it.
+We answer the same way. Asked who we are, we present a name, a profession, a role in the family, a list of accomplishments. But everything on that list is something we *have*, not what we *are*. Titles, skills, and reputations are possessions of the person; they are not the person.
 
-**Central teaching**
+The question "Who are you?" was an invitation to look inward. The proud answer closed the door that the question had opened. The Self stands before us all our lives, gently asking this same question — and we keep handing it our visiting card.
 
-An identity built out of titles is about to be tested. The Self stands face to face with us all our lives, quietly asking who we are — and we keep handing it our card.
+## Central teaching
 
-**In one sentence**
+An identity built from titles and abilities cannot stand before Brahman, because Brahman is the reality behind the one who holds the titles.
 
-Asked "who are you?", the ego hands over its business card.
+## In one sentence
+
+The verse shows that when truth asks "Who are you?", the ego can only answer with its résumé — and thereby misses the question.

@@ -1,26 +1,23 @@
 # 28. Why These Three Stand First
 
-**The Verse**
+## The verse
 
-> That is why Agni, Vayu, and Indra
-> stand above the other gods.
-> They came closest to the spirit;
-> they were the first to know it was Brahman.
->
-> — Kena Upanishad, 4.2
+*"That is why Agni, Vayu, and Indra stand above the other gods. They came closest to the spirit; they were the first to know it was Brahman."*
 
-**Explanation**
+## Explanation
 
-Here is a strange promotion: the three who failed are ranked above all the gods who did not. The others stayed home, safe in their glory, untested. Fire, wind, and the king walked up to the mystery and were humbled by it — and that humbling is counted as nearness.
+The Upanishad now explains a strange ranking: the three gods who failed before the spirit are honored above all the gods who did not. The others stayed home, safe in their shared glory, untested and untouched. Agni, Vayu, and Indra walked up to the mystery and were humbled by it — and that humbling is counted as nearness to Brahman.
 
-**The deeper meaning**
+## The deeper meaning
 
-This reverses our whole idea of failure. To try to reach the truth and be defeated is closer to knowing than never to have approached it. Your collapsed certainties, your methods that fell short, your prayers that seemed to hit an empty sky — the verse calls all of it coming close.
+This verse quietly reverses our entire idea of failure. To approach the truth and be defeated by it is closer to knowledge than never to have approached it at all. The collapse of our certainties, the methods that fell short, the prayers that seemed to meet an empty sky — the Upanishad counts all of this as coming close.
 
-**Central teaching**
+In the school of Self-knowledge, the marks left by honest failure are the grades. What disqualifies a seeker is not defeat but distance — never risking the approach.
 
-In this school, the marks of failure are the grades. Greatness is measured by closeness to truth, not by untested power.
+## Central teaching
 
-**In one sentence**
+Greatness is measured by nearness to truth, and honest defeat before Brahman is nearer than untested glory.
 
-The highest are those who came nearest the truth — even through failure.
+## In one sentence
+
+The verse teaches that the three gods who failed before Brahman rank highest, because approaching the truth — even to be humbled — is itself the beginning of knowing it.

@@ -1,26 +1,27 @@
 # 5. What Speech Cannot Say
 
-**The Verse**
+## The verse
 
-> That which speech cannot express,
-> but by which speech itself is expressed —
-> know that alone to be Brahman,
-> and not this that people worship here.
->
-> — Kena Upanishad, 1.5
+> "That which speech cannot express, but by which speech itself is expressed—know that alone to be Brahman, and not this that people worship here."
 
-**Explanation**
+## Explanation
 
-Words cannot describe Brahman, because Brahman is the power that makes words possible. Then comes a bold line: whatever people worship "here" — any form, any image, any idea of God placed in front of them — that is not it. A thing in front of you cannot be the power behind you.
+The Upanishad teaches that Brahman cannot be fully described or captured by words. Every word we speak refers to some object, idea, feeling, or experience, but Brahman is not an object that language can point to. Instead, Brahman is the very reality that makes speech, thought, and all expression possible.
 
-**The deeper meaning**
+When the verse says, "by which speech itself is expressed," it means that the power to speak, think, and communicate comes from Brahman. Without that underlying reality, speech would not exist.
 
-Anything you can name is held inside your mind, so it is smaller than you. Any God you can picture is a picture — made by the mind, powered by the very reality you are trying to find. The Upanishad is not against worship. It is against stopping at the picture.
+The final statement, "not this that people worship here," reminds us that Brahman is not limited to any particular form, image, concept, or mental idea. Any object of worship can be a symbol that helps the mind, but Brahman itself is beyond every symbol and description.
 
-**Central teaching**
+## The deeper meaning
 
-Do not confuse the described with the describer. God is not the greatest object in the world; God is what makes seeing any object possible.
+Language works by making distinctions: this and that, subject and object, known and unknown. Brahman is beyond all such distinctions. It is the eternal awareness in whose presence words arise and disappear.
 
-**In one sentence**
+The verse is not rejecting worship. Rather, it warns against mistaking a symbol, image, or concept for the ultimate reality itself. True knowledge of Brahman is not gained by describing it but by realizing it directly as the very ground of one's own consciousness.
 
-What you cannot put into words, but which lets you speak at all — that is God.
+## Central teaching
+
+Brahman cannot be described by words because it is the source of the very power of speech; therefore, it must be realized directly rather than understood merely through language or concepts.
+
+## In one sentence
+
+Brahman is the indescribable reality that gives speech its power, yet forever remains beyond the reach of words.

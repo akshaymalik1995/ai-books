@@ -1,25 +1,25 @@
 # 27. It Was Brahman
 
-**The Verse**
+## The verse
 
-> She said: "It was Brahman.
-> It was Brahman's victory you were treating as your own."
-> Then Indra knew: it was Brahman.
->
-> — Kena Upanishad, 4.1
+*"She said: 'It was Brahman. It was Brahman's victory you were glorying in as your own.' Then Indra knew: it was Brahman."*
 
-**Explanation**
+## Explanation
 
-One sentence from wisdom, and the whole story falls into place. The strange spirit was never strange. It was the power that had won their battle for them all along. Notice what the answer corrects: not their strength, but their accounting. The victory was real. Only the "ours" was false.
+One sentence from Uma resolves the whole mystery. The strange spirit was never strange — it was Brahman, the very power that had won the gods' battle for them. Notice precisely what her answer corrects: not the gods' strength, but their accounting. The victory was real. Only the word "ours" was false.
 
-**The deeper meaning**
+With this, Indra becomes the first of the gods to know Brahman.
 
-Our life's ledger has the same error on every page. The talents were real, the work was real, the successes were real — the "mine" was the forgery. And notice how knowing finally happened: not by burning, not by lifting, not by inspecting. By listening.
+## The deeper meaning
 
-**Central teaching**
+Our own life's ledger carries the same error on every page. The talents were real, the work was real, the successes were real — the "mine" written across them was the forgery. Correcting that one word changes everything, while taking nothing real away.
 
-The ego, humbled and asking, is where recognition finally lands. Indra becomes the first of the gods to know Brahman — not because he was strongest, but because he was the first to listen.
+Notice also how knowing finally happened: not by burning, not by lifting, not by inspecting, but by listening. After all the running and testing, truth entered through a humble ear.
 
-**In one sentence**
+## Central teaching
 
-The glory you claimed was never yours — and seeing this is the beginning of knowing.
+Realization does not destroy our abilities or achievements; it corrects their ownership, returning all power to its true source.
+
+## In one sentence
+
+The verse teaches that the glory the ego claimed was always Brahman's, and recognizing this is the moment true knowledge begins.

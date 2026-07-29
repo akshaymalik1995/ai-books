@@ -1,26 +1,25 @@
 # 9. The Life of the Breath
 
-**The Verse**
+## The verse
 
-> That which breath cannot keep alive,
-> but by which breath itself is drawn —
-> know that alone to be Brahman,
-> and not this that people worship here.
->
-> — Kena Upanishad, 1.9
+*"That which breath cannot keep alive, but by which breath itself is drawn — know that alone to be Brahman, and not this that people worship here."*
 
-**Explanation**
+## Explanation
 
-We say breath is life. The Upanishad goes one step deeper: what moves the breath? Breath is just air going in and out, and air does not decide to flow. Something is drawing every breath. That something is not kept alive by the breath — the breath is kept moving by it.
+This is the last verse of the first chapter, and it turns to the most intimate function of all: the breath. We usually say that breath is life. The Upanishad goes one step deeper and asks what moves the breath itself. Air does not decide to flow in and out of the body. Something draws every breath — and that something is not kept alive by the breath. On the contrary, the breath is kept moving by it.
 
-**The deeper meaning**
+Once again the refrain follows: know that alone to be Brahman, not any object of worship in front of us.
 
-You have taken millions of breaths, and you were not in charge of any of them. They came while you slept, while you worked, while you forgot. Life is not something you are doing. Life is something being done through you. Every second, you are being carried by a power you never thank.
+## The deeper meaning
 
-**Central teaching**
+A person takes hundreds of millions of breaths in a lifetime, and is not in charge of a single one. Breathing continues in deep sleep, in distraction, in forgetfulness. This shows that life is not something we are doing; it is something being done through us. The individual who says "I am alive" is being carried, moment by moment, by a power deeper than the individual.
 
-This completes the first chapter's answer. Eye, ear, speech, mind, breath — all five run on one power. That power is Brahman, and it is what you truly are.
+Realizing this transforms fear of death. What we truly are is not the breath that can stop, but the life from which the breath borrows its movement.
 
-**In one sentence**
+## Central teaching
 
-You are not breathing; you are being breathed.
+The five faculties — speech, mind, eye, ear, and breath — all run on one power. That power is Brahman, and it is the true Self.
+
+## In one sentence
+
+The verse teaches that we are not the breathing body but the deathless life that breathes through it.
