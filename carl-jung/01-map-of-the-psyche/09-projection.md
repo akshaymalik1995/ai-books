@@ -10,7 +10,7 @@ This is why some flaws in others merely annoy you, while one particular flaw mak
 
 The burn is the clue. Ordinary dislike is calm; projection has heat.
 
-The arrogant colleague you cannot stop thinking about. The lazy relative you mention again and again.
+Think of the arrogant colleague you cannot stop thinking about, or the lazy relative you mention again and again.
 
 They may truly be arrogant or lazy. The projection is not in the seeing but in the charge — the extra fire that will not let the matter rest.
 

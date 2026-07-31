@@ -10,7 +10,7 @@ It says exactly what it means — but in its native language, which is image, no
 
 The unconscious is older than speech. It thinks the way myths think: in pictures, persons, and places.
 
-Being lost in a house with unknown rooms. Losing the car's brakes. Finding a door that was never there before.
+You are lost in a house with unknown rooms. The car's brakes stop working. A door appears where no door was before.
 
 Each is a plain statement, once you accept that pictures are the grammar.
 
