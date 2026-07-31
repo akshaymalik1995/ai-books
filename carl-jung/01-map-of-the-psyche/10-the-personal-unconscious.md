@@ -20,4 +20,4 @@ You take an instant dislike to a stranger, and only later see they resemble some
 
 This layer is personal in the strict sense: no one else has yours. It is the sediment of one particular life.
 
-Below it, Jung claimed, lies a second layer that is not personal at all. That claim made him famous, and it comes two pages from now.
+Below it, Jung claimed, lies a second layer that is not personal at all.

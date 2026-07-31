@@ -10,7 +10,7 @@ The Mother is an archetype. Every child arrives ready to find a mother — the r
 
 The Hero is one: the pattern of leaving safety, facing the dragon, returning changed. Every culture tells it because every psyche contains it.
 
-The Wise Old One, the Child, the Trickster, the Great Father — old patterns, endlessly refilled.
+The Wise Old One, the Child, the Trickster, the Great Father are patterns of the same kind, endlessly refilled.
 
 You never meet an archetype directly. You meet the images it produces — in myths, in dreams, in the people you cannot be neutral about.
 
@@ -20,4 +20,4 @@ That is why such feelings carry so much voltage. The person is ordinary; the pat
 
 Archetypes are not good or bad. They are the grammar of human life, and no one speaks outside their grammar.
 
-The next two pages take up the pair of archetypes Jung watched most closely.
+You do not escape a pattern by knowing it exists. You only gain a choice in how consciously it is lived.

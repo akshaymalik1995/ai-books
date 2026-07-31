@@ -20,4 +20,4 @@ So the ego is not to be destroyed or humbled into nothing. The Self needs it, aw
 
 The healthiest position, in this map, is a working relationship: the small bright "I" listening to the large dark whole.
 
-Jung had a name for building that relationship. It comes at page twenty; before it, two pages on how the whole actually speaks.
+Jung had a name for building that relationship. It comes on a later page, once you have seen how the whole actually speaks.

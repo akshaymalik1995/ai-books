@@ -10,7 +10,7 @@ The Self is the whole house — lit room and dark floors, ego, persona, shadow, 
 
 And it is also, strangely, a center: an organizing point that the whole arranges itself around, the way a seed organizes a tree.
 
-Center and circle at once. Jung admitted the logic strains; the psyche is not obliged to fit our logic.
+It is center and circle at once. Jung admitted the logic strains; the psyche is not obliged to fit our logic.
 
 The Self is not something you build. It was there first — the ego grew out of it, the way an apple grows from a tree.
 

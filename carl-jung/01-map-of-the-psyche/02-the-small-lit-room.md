@@ -8,7 +8,7 @@ The room feels like the whole house, because light is all it can see.
 
 But the house is larger. Most of what you are stands in the dark, outside the doorway.
 
-Forgotten years are out there. Abilities you never used. Feelings you never let in.
+Forgotten years are out there, along with abilities you never used and feelings you never let in.
 
 The dark part is not empty and not asleep. It thinks in its own way, and it acts.
 

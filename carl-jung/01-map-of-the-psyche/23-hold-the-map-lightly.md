@@ -14,7 +14,7 @@ A map misused becomes a wall between you and the thing it mapped.
 
 The person who says "that is just my shadow" and looks no further has used the name to stop looking.
 
-Labels can taxidermy an experience — naming it instead of feeling it, filing it instead of learning from it.
+A label can end the looking too soon — the thing gets named instead of felt, filed instead of learned from.
 
 Some of Jung's lines have aged badly, and honesty requires saying so. Test everything here against your own observation; drop what fails.
 

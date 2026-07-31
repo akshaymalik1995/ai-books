@@ -16,7 +16,7 @@ Alone, with no one to perform for, you feel like no one at all.
 
 And everything that does not fit the mask — the doubt, the softness, the anger — has to go somewhere.
 
-It does not disappear. It goes into the dark, and it waits. That waiting place is the next page.
+It does not disappear. It goes into the dark, and it waits.
 
 The persona is a good servant and a terrible identity.
 

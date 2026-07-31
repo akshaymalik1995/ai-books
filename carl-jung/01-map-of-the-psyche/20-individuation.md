@@ -8,11 +8,11 @@ The word does not mean becoming individual*istic*. It means becoming undivided â
 
 The path runs through everything this book has named, roughly in order.
 
-First the persona: seeing the mask as a mask, and no longer confusing it with the face.
+It begins with the persona, when the mask is finally seen as a mask and no longer confused with the face.
 
-Then the shadow: turning toward what was exiled, taking projections back one by one.
+It continues into the shadow, as what was exiled is turned toward and the projections are taken back one by one.
 
-Then the inner other, anima or animus: meeting the unlived half instead of marrying it or obeying it.
+Then comes the inner other, anima or animus, met at last instead of being married or obeyed.
 
 And throughout, the slow shift of center â€” the ego learning it orbits something larger, and beginning to listen.
 
