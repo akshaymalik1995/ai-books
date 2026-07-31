@@ -17,6 +17,8 @@ needed, explain it plainly.
 **Sound like a person.** Read it aloud in your head. It should sound like one
 person talking gently to another. Use whole sentences — never choppy, clipped
 fragments ("Not the fight. Clear seeing."). Short is fine; broken is not.
+Watch example lists especially — fragments hide there ("The angry boss. The
+lazy friend."). Give every example its verb.
 
 **Room to breathe.** Flowing paragraphs, often a single sentence, with white
 space around them. Do not cram, and do not wrap text into cramped lines. The
