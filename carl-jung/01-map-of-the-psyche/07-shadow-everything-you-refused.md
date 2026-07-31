@@ -6,7 +6,7 @@ Every persona casts a shadow. The two are made together, like light and dark.
 
 To build "I am kind", the unkind impulses had to be pushed out of sight.
 
-To build "I am strong", the fear went into the dark. To build "I am humble", the ambition.
+To build "I am strong", the fear went into the dark, and to build "I am humble", the ambition went with it.
 
 Whatever did not fit the person you decided to be — it was not deleted. There is no delete in the psyche.
 

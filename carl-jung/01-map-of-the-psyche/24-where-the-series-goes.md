@@ -2,7 +2,7 @@
 
 > You now hold the whole map. The next books walk into its regions.
 
-The tour is complete. Lit room and dark house, the masks and the exiles, the old patterns and the center that holds them.
+The tour is complete. You have seen the lit room and the dark house, the masks and the exiles, the old patterns and the center that holds them.
 
 Nothing here was covered fully. That was the design — a map first, the territory afterward.
 

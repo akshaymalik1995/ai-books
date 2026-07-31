@@ -18,6 +18,6 @@ He saw images in his patients' dreams that matched ancient symbols the dreamers 
 
 His explanation: at bottom, the human psyche has one common floor, inherited like the body, the deposit of millions of years of human experience.
 
-This layer is the collective unconscious. Personal at the surface, human at the depths.
+This layer is the collective unconscious.
 
 At the surface you are yourself. At the bottom you are mankind.

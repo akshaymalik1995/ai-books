@@ -12,7 +12,7 @@ And it is also, strangely, a center: an organizing point that the whole arranges
 
 It is center and circle at once. Jung admitted the logic strains; the psyche is not obliged to fit our logic.
 
-The Self is not something you build. It was there first — the ego grew out of it, the way an apple grows from a tree.
+The Self is not something you build. It was there first — the ego grew out of it, the way a branch grows from a trunk.
 
 It has an aim of its own: wholeness. It presses, all your life, toward the living of everything you are.
 
